@@ -1,0 +1,15 @@
+---
+layout: post
+date: '2016-07-31'
+title: "Laura Olteanu evening-dresses-2010-2011 Style 194"
+category: Laura Olteanu evening-dresses-2010-2011
+tags: [Laura Olteanu evening-dresses-2010-2011]
+---
+### Laura Olteanu evening-dresses-2010-2011 Style 194
+Just **$799.99**
+### 
+
+<a href="https://www.readybrides.com/en/laura-olteanu-evening-dresses-2010-2011/41554-laura-olteanu-evening-dresses-2010-2011-style-194.html"><img src="//static.msromantic.com/90843/laura-olteanu-evening-dresses-2010-2011-style-194.jpg" alt="Laura Olteanu evening-dresses-2010-2011 Style 194" style="width:100%;" /></a>
+
+<!-- break -->
+Buy it: [https://www.readybrides.com/en/laura-olteanu-evening-dresses-2010-2011/41554-laura-olteanu-evening-dresses-2010-2011-style-194.html](https://www.readybrides.com/en/laura-olteanu-evening-dresses-2010-2011/41554-laura-olteanu-evening-dresses-2010-2011-style-194.html)
