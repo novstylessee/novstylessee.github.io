@@ -9,8 +9,8 @@ tags: [Jovani ,Jovani,Mermaid/Trumpet,Sweetheart,Sweep/Brush Train,Sleeveless]
 Just **$440.98**
 ###   Sleeveless Sweep/Brush Train Mermaid/Trumpet 
 <table><tr><td>BRANDS</td><td>Jovani</td></tr><tr><td>Silhouette</td><td>Mermaid/Trumpet</td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Sweep/Brush Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/jovani-/39071-jovani-purple-fitted-prom-dress-20015.html"><img src="//static.msromantic.com/83959/jovani-purple-fitted-prom-dress-20015.jpg" alt="Jovani Purple Fitted Prom Dress 20015" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-/39071-jovani-purple-fitted-prom-dress-20015.html"><img src="//static.msromantic.com/83959/jovani-purple-fitted-prom-dress-20015.jpg" alt="Jovani Purple Fitted Prom Dress 20015" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/jovani-/39071-jovani-purple-fitted-prom-dress-20015.html"><img src="//static.msromantic.com/83961/jovani-purple-fitted-prom-dress-20015.jpg" alt="Jovani Purple Fitted Prom Dress 20015" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/jovani-/39071-jovani-purple-fitted-prom-dress-20015.html"><img src="//static.msromantic.com/83960/jovani-purple-fitted-prom-dress-20015.jpg" alt="Jovani Purple Fitted Prom Dress 20015" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/jovani-/39071-jovani-purple-fitted-prom-dress-20015.html](https://www.readybrides.com/en/jovani-/39071-jovani-purple-fitted-prom-dress-20015.html)
+<!-- break --><a href="https://www.antebrands.com/en/jovani-/39071-jovani-purple-fitted-prom-dress-20015.html"><img src="//static.msromantic.com/83961/jovani-purple-fitted-prom-dress-20015.jpg" alt="Jovani Purple Fitted Prom Dress 20015" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-/39071-jovani-purple-fitted-prom-dress-20015.html"><img src="//static.msromantic.com/83960/jovani-purple-fitted-prom-dress-20015.jpg" alt="Jovani Purple Fitted Prom Dress 20015" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/jovani-/39071-jovani-purple-fitted-prom-dress-20015.html](https://www.antebrands.com/en/jovani-/39071-jovani-purple-fitted-prom-dress-20015.html)

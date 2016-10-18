@@ -9,7 +9,7 @@ tags: [Atelier Aimée,Ballgown,Scalloped-Edge,Sleeveless]
 Just **$439.99**
 ###   Sleeveless  Ballgown 
 <table><tr><td>BRANDS</td><td>Atelier Aimée</td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Neckline</td><td>Scalloped-Edge</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/atelier-aimee/40868-atelier-aimee-wedding-dresses-2014-simona-strapless-ball-gown-gold-accents.html"><img src="//static.msromantic.com/89276/atelier-aimee-wedding-dresses-2014-simona-strapless-ball-gown-gold-accents.jpg" alt="Atelier Aimée wedding dresses 2014 simona strapless ball gown gold accents" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/atelier-aimee/40868-atelier-aimee-wedding-dresses-2014-simona-strapless-ball-gown-gold-accents.html"><img src="//static.msromantic.com/89276/atelier-aimee-wedding-dresses-2014-simona-strapless-ball-gown-gold-accents.jpg" alt="Atelier Aimée wedding dresses 2014 simona strapless ball gown gold accents" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/atelier-aimee/40868-atelier-aimee-wedding-dresses-2014-simona-strapless-ball-gown-gold-accents.html](https://www.readybrides.com/en/atelier-aimee/40868-atelier-aimee-wedding-dresses-2014-simona-strapless-ball-gown-gold-accents.html)
+Buy it: [https://www.antebrands.com/en/atelier-aimee/40868-atelier-aimee-wedding-dresses-2014-simona-strapless-ball-gown-gold-accents.html](https://www.antebrands.com/en/atelier-aimee/40868-atelier-aimee-wedding-dresses-2014-simona-strapless-ball-gown-gold-accents.html)

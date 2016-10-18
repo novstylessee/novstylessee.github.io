@@ -9,7 +9,7 @@ tags: [So Sassi]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/so-sassi/37050-so-sassi-rita.html"><img src="//static.msromantic.com/77419/so-sassi-rita.jpg" alt="So Sassi Rita" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/so-sassi/37050-so-sassi-rita.html"><img src="//static.msromantic.com/77419/so-sassi-rita.jpg" alt="So Sassi Rita" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/so-sassi/37050-so-sassi-rita.html"><img src="//static.msromantic.com/77418/so-sassi-rita.jpg" alt="So Sassi Rita" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/so-sassi/37050-so-sassi-rita.html](https://www.readybrides.com/en/so-sassi/37050-so-sassi-rita.html)
+<!-- break --><a href="https://www.antebrands.com/en/so-sassi/37050-so-sassi-rita.html"><img src="//static.msromantic.com/77418/so-sassi-rita.jpg" alt="So Sassi Rita" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/so-sassi/37050-so-sassi-rita.html](https://www.antebrands.com/en/so-sassi/37050-so-sassi-rita.html)

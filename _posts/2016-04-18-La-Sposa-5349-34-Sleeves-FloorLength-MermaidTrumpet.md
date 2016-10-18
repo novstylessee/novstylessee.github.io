@@ -9,7 +9,7 @@ tags: [La Sposa,Mermaid/Trumpet,Illusion,Jewel,Floor-Length,3/4 Sleeves]
 Just **$269.99**
 ###   3/4 Sleeves Floor-Length Mermaid/Trumpet 
 <table><tr><td>BRANDS</td><td>La Sposa</td></tr><tr><td>Silhouette</td><td>Mermaid/Trumpet</td></tr><tr><td>Neckline</td><td>Illusion,Jewel</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>3/4 Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/la-sposa/42851-la-sposa-5349.html"><img src="//static.msromantic.com/93994/la-sposa-5349.jpg" alt="La Sposa 5349" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/la-sposa/42851-la-sposa-5349.html"><img src="//static.msromantic.com/93994/la-sposa-5349.jpg" alt="La Sposa 5349" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/la-sposa/42851-la-sposa-5349.html](https://www.readybrides.com/en/la-sposa/42851-la-sposa-5349.html)
+Buy it: [https://www.antebrands.com/en/la-sposa/42851-la-sposa-5349.html](https://www.antebrands.com/en/la-sposa/42851-la-sposa-5349.html)

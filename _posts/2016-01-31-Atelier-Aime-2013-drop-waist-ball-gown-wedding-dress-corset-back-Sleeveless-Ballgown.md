@@ -9,7 +9,7 @@ tags: [Atelier Aimée,Ballgown,Sleeveless]
 Just **$499.99**
 ###   Sleeveless  Ballgown 
 <table><tr><td>BRANDS</td><td>Atelier Aimée</td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/atelier-aimee/40905-atelier-aimee-2013-drop-waist-ball-gown-wedding-dress-corset-back.html"><img src="//static.msromantic.com/89331/atelier-aimee-2013-drop-waist-ball-gown-wedding-dress-corset-back.jpg" alt="Atelier Aimée 2013 drop waist ball gown wedding dress corset back" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/atelier-aimee/40905-atelier-aimee-2013-drop-waist-ball-gown-wedding-dress-corset-back.html"><img src="//static.msromantic.com/89331/atelier-aimee-2013-drop-waist-ball-gown-wedding-dress-corset-back.jpg" alt="Atelier Aimée 2013 drop waist ball gown wedding dress corset back" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/atelier-aimee/40905-atelier-aimee-2013-drop-waist-ball-gown-wedding-dress-corset-back.html](https://www.readybrides.com/en/atelier-aimee/40905-atelier-aimee-2013-drop-waist-ball-gown-wedding-dress-corset-back.html)
+Buy it: [https://www.antebrands.com/en/atelier-aimee/40905-atelier-aimee-2013-drop-waist-ball-gown-wedding-dress-corset-back.html](https://www.antebrands.com/en/atelier-aimee/40905-atelier-aimee-2013-drop-waist-ball-gown-wedding-dress-corset-back.html)

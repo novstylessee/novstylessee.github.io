@@ -9,7 +9,7 @@ tags: [La Sposa,Mermaid/Trumpet,Sweetheart,Floor-Length,Sleeveless]
 Just **$369.99**
 ###   Sleeveless Floor-Length Mermaid/Trumpet 
 <table><tr><td>BRANDS</td><td>La Sposa</td></tr><tr><td>Silhouette</td><td>Mermaid/Trumpet</td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/la-sposa/42598-la-sposa-6616.html"><img src="//static.msromantic.com/93415/la-sposa-6616.jpg" alt="La Sposa 6616" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/la-sposa/42598-la-sposa-6616.html"><img src="//static.msromantic.com/93415/la-sposa-6616.jpg" alt="La Sposa 6616" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/la-sposa/42598-la-sposa-6616.html"><img src="//static.msromantic.com/93410/la-sposa-6616.jpg" alt="La Sposa 6616" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/la-sposa/42598-la-sposa-6616.html](https://www.readybrides.com/en/la-sposa/42598-la-sposa-6616.html)
+<!-- break --><a href="https://www.antebrands.com/en/la-sposa/42598-la-sposa-6616.html"><img src="//static.msromantic.com/93410/la-sposa-6616.jpg" alt="La Sposa 6616" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/la-sposa/42598-la-sposa-6616.html](https://www.antebrands.com/en/la-sposa/42598-la-sposa-6616.html)

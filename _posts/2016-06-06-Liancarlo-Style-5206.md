@@ -9,7 +9,7 @@ tags: [Liancarlo ]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/liancarlo-/41966-liancarlo-style-5206.html"><img src="//static.msromantic.com/91683/liancarlo-style-5206.jpg" alt="Liancarlo Style 5206" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/liancarlo-/41966-liancarlo-style-5206.html"><img src="//static.msromantic.com/91683/liancarlo-style-5206.jpg" alt="Liancarlo Style 5206" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/liancarlo-/41966-liancarlo-style-5206.html](https://www.readybrides.com/en/liancarlo-/41966-liancarlo-style-5206.html)
+Buy it: [https://www.antebrands.com/en/liancarlo-/41966-liancarlo-style-5206.html](https://www.antebrands.com/en/liancarlo-/41966-liancarlo-style-5206.html)

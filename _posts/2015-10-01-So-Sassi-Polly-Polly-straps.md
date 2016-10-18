@@ -9,7 +9,7 @@ tags: [So Sassi]
 Just **$249.99**
 ### 
 
-<a href="https://www.readybrides.com/en/so-sassi/37047-so-sassi-polly-polly-straps.html"><img src="//static.msromantic.com/77413/so-sassi-polly-polly-straps.jpg" alt="So Sassi Polly & Polly straps" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/so-sassi/37047-so-sassi-polly-polly-straps.html"><img src="//static.msromantic.com/77413/so-sassi-polly-polly-straps.jpg" alt="So Sassi Polly & Polly straps" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/so-sassi/37047-so-sassi-polly-polly-straps.html"><img src="//static.msromantic.com/77412/so-sassi-polly-polly-straps.jpg" alt="So Sassi Polly & Polly straps" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/so-sassi/37047-so-sassi-polly-polly-straps.html](https://www.readybrides.com/en/so-sassi/37047-so-sassi-polly-polly-straps.html)
+<!-- break --><a href="https://www.antebrands.com/en/so-sassi/37047-so-sassi-polly-polly-straps.html"><img src="//static.msromantic.com/77412/so-sassi-polly-polly-straps.jpg" alt="So Sassi Polly & Polly straps" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/so-sassi/37047-so-sassi-polly-polly-straps.html](https://www.antebrands.com/en/so-sassi/37047-so-sassi-polly-polly-straps.html)

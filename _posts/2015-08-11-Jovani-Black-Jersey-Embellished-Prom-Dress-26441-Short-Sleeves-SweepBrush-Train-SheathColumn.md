@@ -9,8 +9,8 @@ tags: [Jovani ,Jovani,Sheath/Column,Bateau,Sweep/Brush Train,Short Sleeves]
 Just **$515.98**
 ###   Short Sleeves Sweep/Brush Train Sheath/Column 
 <table><tr><td>BRANDS</td><td>Jovani</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Bateau</td></tr><tr><td>Hemline/Train</td><td>Sweep/Brush Train</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/jovani-/39331-jovani-black-jersey-embellished-prom-dress-26441.html"><img src="//static.msromantic.com/84414/jovani-black-jersey-embellished-prom-dress-26441.jpg" alt="Jovani Black Jersey Embellished Prom Dress 26441" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-/39331-jovani-black-jersey-embellished-prom-dress-26441.html"><img src="//static.msromantic.com/84414/jovani-black-jersey-embellished-prom-dress-26441.jpg" alt="Jovani Black Jersey Embellished Prom Dress 26441" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/jovani-/39331-jovani-black-jersey-embellished-prom-dress-26441.html"><img src="//static.msromantic.com/84415/jovani-black-jersey-embellished-prom-dress-26441.jpg" alt="Jovani Black Jersey Embellished Prom Dress 26441" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/jovani-/39331-jovani-black-jersey-embellished-prom-dress-26441.html"><img src="//static.msromantic.com/84413/jovani-black-jersey-embellished-prom-dress-26441.jpg" alt="Jovani Black Jersey Embellished Prom Dress 26441" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/jovani-/39331-jovani-black-jersey-embellished-prom-dress-26441.html](https://www.readybrides.com/en/jovani-/39331-jovani-black-jersey-embellished-prom-dress-26441.html)
+<!-- break --><a href="https://www.antebrands.com/en/jovani-/39331-jovani-black-jersey-embellished-prom-dress-26441.html"><img src="//static.msromantic.com/84415/jovani-black-jersey-embellished-prom-dress-26441.jpg" alt="Jovani Black Jersey Embellished Prom Dress 26441" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-/39331-jovani-black-jersey-embellished-prom-dress-26441.html"><img src="//static.msromantic.com/84413/jovani-black-jersey-embellished-prom-dress-26441.jpg" alt="Jovani Black Jersey Embellished Prom Dress 26441" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/jovani-/39331-jovani-black-jersey-embellished-prom-dress-26441.html](https://www.antebrands.com/en/jovani-/39331-jovani-black-jersey-embellished-prom-dress-26441.html)

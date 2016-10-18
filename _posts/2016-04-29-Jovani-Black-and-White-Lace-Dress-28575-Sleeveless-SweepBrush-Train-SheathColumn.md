@@ -9,7 +9,7 @@ tags: [Jovani ,Jovani,Sheath/Column,Bateau,Sweep/Brush Train,Sleeveless]
 Just **$436.98**
 ###   Sleeveless Sweep/Brush Train Sheath/Column 
 <table><tr><td>BRANDS</td><td>Jovani</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Bateau</td></tr><tr><td>Hemline/Train</td><td>Sweep/Brush Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/jovani-/39593-jovani-black-and-white-lace-dress-28575.html"><img src="//static.msromantic.com/85381/jovani-black-and-white-lace-dress-28575.jpg" alt="Jovani Black and White Lace Dress 28575" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-/39593-jovani-black-and-white-lace-dress-28575.html"><img src="//static.msromantic.com/85381/jovani-black-and-white-lace-dress-28575.jpg" alt="Jovani Black and White Lace Dress 28575" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/jovani-/39593-jovani-black-and-white-lace-dress-28575.html"><img src="//static.msromantic.com/85380/jovani-black-and-white-lace-dress-28575.jpg" alt="Jovani Black and White Lace Dress 28575" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/jovani-/39593-jovani-black-and-white-lace-dress-28575.html](https://www.readybrides.com/en/jovani-/39593-jovani-black-and-white-lace-dress-28575.html)
+<!-- break --><a href="https://www.antebrands.com/en/jovani-/39593-jovani-black-and-white-lace-dress-28575.html"><img src="//static.msromantic.com/85380/jovani-black-and-white-lace-dress-28575.jpg" alt="Jovani Black and White Lace Dress 28575" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/jovani-/39593-jovani-black-and-white-lace-dress-28575.html](https://www.antebrands.com/en/jovani-/39593-jovani-black-and-white-lace-dress-28575.html)

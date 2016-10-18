@@ -9,7 +9,7 @@ tags: [So Sassi]
 Just **$249.99**
 ### 
 
-<a href="https://www.readybrides.com/en/so-sassi/37022-so-sassi-georgie-angelica-shrug.html"><img src="//static.msromantic.com/77359/so-sassi-georgie-angelica-shrug.jpg" alt="So Sassi Georgie & Angelica Shrug" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/so-sassi/37022-so-sassi-georgie-angelica-shrug.html"><img src="//static.msromantic.com/77359/so-sassi-georgie-angelica-shrug.jpg" alt="So Sassi Georgie & Angelica Shrug" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/so-sassi/37022-so-sassi-georgie-angelica-shrug.html](https://www.readybrides.com/en/so-sassi/37022-so-sassi-georgie-angelica-shrug.html)
+Buy it: [https://www.antebrands.com/en/so-sassi/37022-so-sassi-georgie-angelica-shrug.html](https://www.antebrands.com/en/so-sassi/37022-so-sassi-georgie-angelica-shrug.html)

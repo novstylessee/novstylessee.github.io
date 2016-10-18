@@ -9,7 +9,7 @@ tags: [Ines Di Santo,Sheath/Column,High Neck,Short/Mini,Sleeveless]
 Just **$849.99**
 ###   Sleeveless Short/Mini Sheath/Column 
 <table><tr><td>BRANDS</td><td>Ines Di Santo</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>High Neck</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/ines-di-santo/34698-ines-di-santo-koko.html"><img src="//static.msromantic.com/71951/ines-di-santo-koko.jpg" alt="Ines Di Santo Koko" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ines-di-santo/34698-ines-di-santo-koko.html"><img src="//static.msromantic.com/71951/ines-di-santo-koko.jpg" alt="Ines Di Santo Koko" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/ines-di-santo/34698-ines-di-santo-koko.html](https://www.readybrides.com/en/ines-di-santo/34698-ines-di-santo-koko.html)
+Buy it: [https://www.antebrands.com/en/ines-di-santo/34698-ines-di-santo-koko.html](https://www.antebrands.com/en/ines-di-santo/34698-ines-di-santo-koko.html)

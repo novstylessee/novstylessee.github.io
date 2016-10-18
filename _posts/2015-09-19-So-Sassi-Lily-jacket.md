@@ -9,7 +9,7 @@ tags: [So Sassi]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/so-sassi/37035-so-sassi-lily-jacket.html"><img src="//static.msromantic.com/77385/so-sassi-lily-jacket.jpg" alt="So Sassi Lily jacket" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/so-sassi/37035-so-sassi-lily-jacket.html"><img src="//static.msromantic.com/77385/so-sassi-lily-jacket.jpg" alt="So Sassi Lily jacket" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/so-sassi/37035-so-sassi-lily-jacket.html](https://www.readybrides.com/en/so-sassi/37035-so-sassi-lily-jacket.html)
+Buy it: [https://www.antebrands.com/en/so-sassi/37035-so-sassi-lily-jacket.html](https://www.antebrands.com/en/so-sassi/37035-so-sassi-lily-jacket.html)

@@ -9,7 +9,7 @@ tags: [So Sassi]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/so-sassi/37036-so-sassi-lexi.html"><img src="//static.msromantic.com/77387/so-sassi-lexi.jpg" alt="So Sassi Lexi" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/so-sassi/37036-so-sassi-lexi.html"><img src="//static.msromantic.com/77387/so-sassi-lexi.jpg" alt="So Sassi Lexi" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/so-sassi/37036-so-sassi-lexi.html"><img src="//static.msromantic.com/77386/so-sassi-lexi.jpg" alt="So Sassi Lexi" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/so-sassi/37036-so-sassi-lexi.html](https://www.readybrides.com/en/so-sassi/37036-so-sassi-lexi.html)
+<!-- break --><a href="https://www.antebrands.com/en/so-sassi/37036-so-sassi-lexi.html"><img src="//static.msromantic.com/77386/so-sassi-lexi.jpg" alt="So Sassi Lexi" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/so-sassi/37036-so-sassi-lexi.html](https://www.antebrands.com/en/so-sassi/37036-so-sassi-lexi.html)

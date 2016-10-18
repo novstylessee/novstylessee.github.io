@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Uber Collection]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-uber-collection/36413-jonathan-james-couture-bailey.html"><img src="//static.msromantic.com/75826/jonathan-james-couture-bailey.jpg" alt="Jonathan James Couture Bailey" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-uber-collection/36413-jonathan-james-couture-bailey.html"><img src="//static.msromantic.com/75826/jonathan-james-couture-bailey.jpg" alt="Jonathan James Couture Bailey" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-uber-collection/36413-jonathan-james-couture-bailey.html](https://www.readybrides.com/en/jonathan-james-couture-uber-collection/36413-jonathan-james-couture-bailey.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-uber-collection/36413-jonathan-james-couture-bailey.html](https://www.antebrands.com/en/jonathan-james-couture-uber-collection/36413-jonathan-james-couture-bailey.html)

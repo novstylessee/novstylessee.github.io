@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Uber Collection]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-uber-collection/36407-jonathan-james-couture-aaliah.html"><img src="//static.msromantic.com/75820/jonathan-james-couture-aaliah.jpg" alt="Jonathan James Couture Aaliah" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-uber-collection/36407-jonathan-james-couture-aaliah.html"><img src="//static.msromantic.com/75820/jonathan-james-couture-aaliah.jpg" alt="Jonathan James Couture Aaliah" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-uber-collection/36407-jonathan-james-couture-aaliah.html](https://www.readybrides.com/en/jonathan-james-couture-uber-collection/36407-jonathan-james-couture-aaliah.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-uber-collection/36407-jonathan-james-couture-aaliah.html](https://www.antebrands.com/en/jonathan-james-couture-uber-collection/36407-jonathan-james-couture-aaliah.html)

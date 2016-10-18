@@ -9,7 +9,7 @@ tags: [Jillian ,Jillian,Aline/Princess ,Short Sleeves]
 Just **$379.99**
 ###   Short Sleeves  Aline/Princess  
 <table><tr><td>BRANDS</td><td>Jillian</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/jillian-/35281-jillian-96811.html"><img src="//static.msromantic.com/73883/jillian-96811.jpg" alt="Jillian 96811" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jillian-/35281-jillian-96811.html"><img src="//static.msromantic.com/73883/jillian-96811.jpg" alt="Jillian 96811" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jillian-/35281-jillian-96811.html](https://www.readybrides.com/en/jillian-/35281-jillian-96811.html)
+Buy it: [https://www.antebrands.com/en/jillian-/35281-jillian-96811.html](https://www.antebrands.com/en/jillian-/35281-jillian-96811.html)

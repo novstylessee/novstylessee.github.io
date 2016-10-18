@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Icon Collection]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36398-jonathan-james-couture-lana.html"><img src="//static.msromantic.com/75811/jonathan-james-couture-lana.jpg" alt="Jonathan James Couture Lana" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36398-jonathan-james-couture-lana.html"><img src="//static.msromantic.com/75811/jonathan-james-couture-lana.jpg" alt="Jonathan James Couture Lana" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36398-jonathan-james-couture-lana.html](https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36398-jonathan-james-couture-lana.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36398-jonathan-james-couture-lana.html](https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36398-jonathan-james-couture-lana.html)

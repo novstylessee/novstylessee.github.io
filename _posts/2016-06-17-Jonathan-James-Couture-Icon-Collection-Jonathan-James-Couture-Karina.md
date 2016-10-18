@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Icon Collection]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36373-jonathan-james-couture-karina.html"><img src="//static.msromantic.com/75786/jonathan-james-couture-karina.jpg" alt="Jonathan James Couture Karina" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36373-jonathan-james-couture-karina.html"><img src="//static.msromantic.com/75786/jonathan-james-couture-karina.jpg" alt="Jonathan James Couture Karina" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36373-jonathan-james-couture-karina.html](https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36373-jonathan-james-couture-karina.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36373-jonathan-james-couture-karina.html](https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36373-jonathan-james-couture-karina.html)

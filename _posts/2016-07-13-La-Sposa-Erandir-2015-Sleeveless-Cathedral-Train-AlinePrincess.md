@@ -9,8 +9,8 @@ tags: [La Sposa ,La Sposa,Aline/Princess ,Illusion,Cathedral Train,Sleeveless,20
 Just **$379.99**
 ### 2015  Sleeveless Cathedral Train Aline/Princess  
 <table><tr><td>BRANDS</td><td>La Sposa</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Illusion</td></tr><tr><td>Hemline/Train</td><td>Cathedral Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr><tr><td>Years</td><td>2015</td></tr></table>
-<a href="https://www.readybrides.com/en/la-sposa-/42470-la-sposa-erandir.html"><img src="//static.msromantic.com/93058/la-sposa-erandir.jpg" alt="La Sposa Erandir" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/la-sposa-/42470-la-sposa-erandir.html"><img src="//static.msromantic.com/93058/la-sposa-erandir.jpg" alt="La Sposa Erandir" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/la-sposa-/42470-la-sposa-erandir.html"><img src="//static.msromantic.com/93060/la-sposa-erandir.jpg" alt="La Sposa Erandir" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/la-sposa-/42470-la-sposa-erandir.html"><img src="//static.msromantic.com/93055/la-sposa-erandir.jpg" alt="La Sposa Erandir" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/la-sposa-/42470-la-sposa-erandir.html](https://www.readybrides.com/en/la-sposa-/42470-la-sposa-erandir.html)
+<!-- break --><a href="https://www.antebrands.com/en/la-sposa-/42470-la-sposa-erandir.html"><img src="//static.msromantic.com/93060/la-sposa-erandir.jpg" alt="La Sposa Erandir" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/la-sposa-/42470-la-sposa-erandir.html"><img src="//static.msromantic.com/93055/la-sposa-erandir.jpg" alt="La Sposa Erandir" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/la-sposa-/42470-la-sposa-erandir.html](https://www.antebrands.com/en/la-sposa-/42470-la-sposa-erandir.html)

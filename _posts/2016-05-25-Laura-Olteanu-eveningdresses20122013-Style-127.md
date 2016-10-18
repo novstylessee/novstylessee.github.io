@@ -9,7 +9,7 @@ tags: [Laura Olteanu evening-dresses-2012-2013]
 Just **$749.99**
 ### 
 
-<a href="https://www.readybrides.com/en/laura-olteanu-evening-dresses-2012-2013/41487-laura-olteanu-evening-dresses-2012-2013-style-127.html"><img src="//static.msromantic.com/90718/laura-olteanu-evening-dresses-2012-2013-style-127.jpg" alt="Laura Olteanu evening-dresses-2012-2013 Style 127" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/laura-olteanu-evening-dresses-2012-2013/41487-laura-olteanu-evening-dresses-2012-2013-style-127.html"><img src="//static.msromantic.com/90718/laura-olteanu-evening-dresses-2012-2013-style-127.jpg" alt="Laura Olteanu evening-dresses-2012-2013 Style 127" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/laura-olteanu-evening-dresses-2012-2013/41487-laura-olteanu-evening-dresses-2012-2013-style-127.html](https://www.readybrides.com/en/laura-olteanu-evening-dresses-2012-2013/41487-laura-olteanu-evening-dresses-2012-2013-style-127.html)
+Buy it: [https://www.antebrands.com/en/laura-olteanu-evening-dresses-2012-2013/41487-laura-olteanu-evening-dresses-2012-2013-style-127.html](https://www.antebrands.com/en/laura-olteanu-evening-dresses-2012-2013/41487-laura-olteanu-evening-dresses-2012-2013-style-127.html)

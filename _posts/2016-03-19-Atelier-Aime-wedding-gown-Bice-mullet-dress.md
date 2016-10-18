@@ -9,7 +9,7 @@ tags: [Atelier Aimée]
 Just **$449.99**
 ### 
 
-<a href="https://www.readybrides.com/en/atelier-aimee/40953-atelier-aimee-wedding-gown-bice-mullet-dress.html"><img src="//static.msromantic.com/89385/atelier-aimee-wedding-gown-bice-mullet-dress.jpg" alt="Atelier Aimée wedding gown - Bice mullet dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/atelier-aimee/40953-atelier-aimee-wedding-gown-bice-mullet-dress.html"><img src="//static.msromantic.com/89385/atelier-aimee-wedding-gown-bice-mullet-dress.jpg" alt="Atelier Aimée wedding gown - Bice mullet dress" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/atelier-aimee/40953-atelier-aimee-wedding-gown-bice-mullet-dress.html](https://www.readybrides.com/en/atelier-aimee/40953-atelier-aimee-wedding-gown-bice-mullet-dress.html)
+Buy it: [https://www.antebrands.com/en/atelier-aimee/40953-atelier-aimee-wedding-gown-bice-mullet-dress.html](https://www.antebrands.com/en/atelier-aimee/40953-atelier-aimee-wedding-gown-bice-mullet-dress.html)

@@ -9,7 +9,7 @@ tags: [Ida Sjöstedt ss12]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/ida-sjoestedt-ss12/34547-ida-sjostedt-style-ss12-title-2.html"><img src="//static.msromantic.com/71729/ida-sjostedt-style-ss12-title-2.jpg" alt="Ida Sjostedt style ss12 Title 2" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ida-sjoestedt-ss12/34547-ida-sjostedt-style-ss12-title-2.html"><img src="//static.msromantic.com/71729/ida-sjostedt-style-ss12-title-2.jpg" alt="Ida Sjostedt style ss12 Title 2" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/ida-sjoestedt-ss12/34547-ida-sjostedt-style-ss12-title-2.html](https://www.readybrides.com/en/ida-sjoestedt-ss12/34547-ida-sjostedt-style-ss12-title-2.html)
+Buy it: [https://www.antebrands.com/en/ida-sjoestedt-ss12/34547-ida-sjostedt-style-ss12-title-2.html](https://www.antebrands.com/en/ida-sjoestedt-ss12/34547-ida-sjostedt-style-ss12-title-2.html)

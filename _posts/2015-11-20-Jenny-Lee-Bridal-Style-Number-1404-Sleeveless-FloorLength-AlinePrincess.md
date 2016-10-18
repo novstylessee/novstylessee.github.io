@@ -9,7 +9,7 @@ tags: [Jenny Lee ,Jenny Lee,Aline/Princess ,Sweetheart,Floor-Length,Sleeveless]
 Just **$339.99**
 ###   Sleeveless Floor-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>Jenny Lee</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/jenny-lee-/34762-jenny-lee-bridal-style-number-1404.html"><img src="//static.msromantic.com/72015/jenny-lee-bridal-style-number-1404.jpg" alt="Jenny Lee Bridal Style Number: 1404" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jenny-lee-/34762-jenny-lee-bridal-style-number-1404.html"><img src="//static.msromantic.com/72015/jenny-lee-bridal-style-number-1404.jpg" alt="Jenny Lee Bridal Style Number: 1404" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jenny-lee-/34762-jenny-lee-bridal-style-number-1404.html](https://www.readybrides.com/en/jenny-lee-/34762-jenny-lee-bridal-style-number-1404.html)
+Buy it: [https://www.antebrands.com/en/jenny-lee-/34762-jenny-lee-bridal-style-number-1404.html](https://www.antebrands.com/en/jenny-lee-/34762-jenny-lee-bridal-style-number-1404.html)

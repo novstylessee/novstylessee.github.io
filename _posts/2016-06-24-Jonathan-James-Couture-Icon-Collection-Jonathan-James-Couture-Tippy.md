@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Icon Collection]
 Just **$249.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36380-jonathan-james-couture-tippy.html"><img src="//static.msromantic.com/75793/jonathan-james-couture-tippy.jpg" alt="Jonathan James Couture Tippy" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36380-jonathan-james-couture-tippy.html"><img src="//static.msromantic.com/75793/jonathan-james-couture-tippy.jpg" alt="Jonathan James Couture Tippy" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36380-jonathan-james-couture-tippy.html](https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36380-jonathan-james-couture-tippy.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36380-jonathan-james-couture-tippy.html](https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36380-jonathan-james-couture-tippy.html)

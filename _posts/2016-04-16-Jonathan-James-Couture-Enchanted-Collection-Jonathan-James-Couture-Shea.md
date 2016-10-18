@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Enchanted Collection]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-enchanted-collection/36311-jonathan-james-couture-shea.html"><img src="//static.msromantic.com/75860/jonathan-james-couture-shea.jpg" alt="Jonathan James Couture Shea" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-enchanted-collection/36311-jonathan-james-couture-shea.html"><img src="//static.msromantic.com/75860/jonathan-james-couture-shea.jpg" alt="Jonathan James Couture Shea" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-enchanted-collection/36311-jonathan-james-couture-shea.html](https://www.readybrides.com/en/jonathan-james-couture-enchanted-collection/36311-jonathan-james-couture-shea.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-enchanted-collection/36311-jonathan-james-couture-shea.html](https://www.antebrands.com/en/jonathan-james-couture-enchanted-collection/36311-jonathan-james-couture-shea.html)

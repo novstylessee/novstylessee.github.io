@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Icon Collection]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36395-jonathan-james-couture-marlene.html"><img src="//static.msromantic.com/75871/jonathan-james-couture-marlene.jpg" alt="Jonathan James Couture Marlene" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36395-jonathan-james-couture-marlene.html"><img src="//static.msromantic.com/75871/jonathan-james-couture-marlene.jpg" alt="Jonathan James Couture Marlene" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36395-jonathan-james-couture-marlene.html](https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36395-jonathan-james-couture-marlene.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36395-jonathan-james-couture-marlene.html](https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36395-jonathan-james-couture-marlene.html)

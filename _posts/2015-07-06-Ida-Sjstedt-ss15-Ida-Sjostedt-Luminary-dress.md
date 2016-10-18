@@ -9,7 +9,7 @@ tags: [Ida Sjöstedt ss15]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/ida-sjoestedt-ss15/34625-ida-sjostedt-luminary-dress.html"><img src="//static.msromantic.com/71808/ida-sjostedt-luminary-dress.jpg" alt="Ida Sjostedt Luminary dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ida-sjoestedt-ss15/34625-ida-sjostedt-luminary-dress.html"><img src="//static.msromantic.com/71808/ida-sjostedt-luminary-dress.jpg" alt="Ida Sjostedt Luminary dress" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/ida-sjoestedt-ss15/34625-ida-sjostedt-luminary-dress.html](https://www.readybrides.com/en/ida-sjoestedt-ss15/34625-ida-sjostedt-luminary-dress.html)
+Buy it: [https://www.antebrands.com/en/ida-sjoestedt-ss15/34625-ida-sjostedt-luminary-dress.html](https://www.antebrands.com/en/ida-sjoestedt-ss15/34625-ida-sjostedt-luminary-dress.html)

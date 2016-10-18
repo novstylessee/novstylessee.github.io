@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Uber Collection]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-uber-collection/36428-jonathan-james-couture-makayla.html"><img src="//static.msromantic.com/75841/jonathan-james-couture-makayla.jpg" alt="Jonathan James Couture Makayla" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-uber-collection/36428-jonathan-james-couture-makayla.html"><img src="//static.msromantic.com/75841/jonathan-james-couture-makayla.jpg" alt="Jonathan James Couture Makayla" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-uber-collection/36428-jonathan-james-couture-makayla.html](https://www.readybrides.com/en/jonathan-james-couture-uber-collection/36428-jonathan-james-couture-makayla.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-uber-collection/36428-jonathan-james-couture-makayla.html](https://www.antebrands.com/en/jonathan-james-couture-uber-collection/36428-jonathan-james-couture-makayla.html)

@@ -9,7 +9,7 @@ tags: [Judd Waddell ,Judd Waddell,Aline/Princess ,Sweetheart,Court Train,Sleevel
 Just **$389.99**
 ###   Sleeveless Court Train Aline/Princess  
 <table><tr><td>BRANDS</td><td>Judd Waddell</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Court Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/judd-waddell-/41221-judd-waddell-macie.html"><img src="//static.msromantic.com/89724/judd-waddell-macie.jpg" alt="Judd Waddell Macie" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/judd-waddell-/41221-judd-waddell-macie.html"><img src="//static.msromantic.com/89724/judd-waddell-macie.jpg" alt="Judd Waddell Macie" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/judd-waddell-/41221-judd-waddell-macie.html](https://www.readybrides.com/en/judd-waddell-/41221-judd-waddell-macie.html)
+Buy it: [https://www.antebrands.com/en/judd-waddell-/41221-judd-waddell-macie.html](https://www.antebrands.com/en/judd-waddell-/41221-judd-waddell-macie.html)

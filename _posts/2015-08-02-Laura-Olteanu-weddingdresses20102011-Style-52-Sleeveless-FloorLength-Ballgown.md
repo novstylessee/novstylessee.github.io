@@ -9,7 +9,7 @@ tags: [Laura Olteanu,Ballgown,One shoulder,Floor-Length,Sleeveless]
 Just **$549.99**
 ###   Sleeveless Floor-Length Ballgown 
 <table><tr><td>BRANDS</td><td>Laura Olteanu</td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Neckline</td><td>One shoulder</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/laura-olteanu/41657-laura-olteanu-wedding-dresses-2010-2011-style-52.html"><img src="//static.msromantic.com/91006/laura-olteanu-wedding-dresses-2010-2011-style-52.jpg" alt="Laura Olteanu wedding-dresses-2010-2011 Style 52" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/laura-olteanu/41657-laura-olteanu-wedding-dresses-2010-2011-style-52.html"><img src="//static.msromantic.com/91006/laura-olteanu-wedding-dresses-2010-2011-style-52.jpg" alt="Laura Olteanu wedding-dresses-2010-2011 Style 52" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/laura-olteanu/41657-laura-olteanu-wedding-dresses-2010-2011-style-52.html](https://www.readybrides.com/en/laura-olteanu/41657-laura-olteanu-wedding-dresses-2010-2011-style-52.html)
+Buy it: [https://www.antebrands.com/en/laura-olteanu/41657-laura-olteanu-wedding-dresses-2010-2011-style-52.html](https://www.antebrands.com/en/laura-olteanu/41657-laura-olteanu-wedding-dresses-2010-2011-style-52.html)

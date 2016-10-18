@@ -9,7 +9,7 @@ tags: [Ida Sjöstedt ss15]
 Just **$199.99**
 ### 
 
-<a href="https://www.readybrides.com/en/ida-sjoestedt-ss15/34619-ida-sjostedt-variety-dress.html"><img src="//static.msromantic.com/71802/ida-sjostedt-variety-dress.jpg" alt="Ida Sjostedt Variety dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ida-sjoestedt-ss15/34619-ida-sjostedt-variety-dress.html"><img src="//static.msromantic.com/71802/ida-sjostedt-variety-dress.jpg" alt="Ida Sjostedt Variety dress" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/ida-sjoestedt-ss15/34619-ida-sjostedt-variety-dress.html](https://www.readybrides.com/en/ida-sjoestedt-ss15/34619-ida-sjostedt-variety-dress.html)
+Buy it: [https://www.antebrands.com/en/ida-sjoestedt-ss15/34619-ida-sjostedt-variety-dress.html](https://www.antebrands.com/en/ida-sjoestedt-ss15/34619-ida-sjostedt-variety-dress.html)

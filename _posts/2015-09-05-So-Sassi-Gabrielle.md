@@ -9,8 +9,8 @@ tags: [So Sassi]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/so-sassi/37021-so-sassi-gabrielle.html"><img src="//static.msromantic.com/77357/so-sassi-gabrielle.jpg" alt="So Sassi Gabrielle" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/so-sassi/37021-so-sassi-gabrielle.html"><img src="//static.msromantic.com/77357/so-sassi-gabrielle.jpg" alt="So Sassi Gabrielle" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/so-sassi/37021-so-sassi-gabrielle.html"><img src="//static.msromantic.com/77358/so-sassi-gabrielle.jpg" alt="So Sassi Gabrielle" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/so-sassi/37021-so-sassi-gabrielle.html"><img src="//static.msromantic.com/77356/so-sassi-gabrielle.jpg" alt="So Sassi Gabrielle" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/so-sassi/37021-so-sassi-gabrielle.html](https://www.readybrides.com/en/so-sassi/37021-so-sassi-gabrielle.html)
+<!-- break --><a href="https://www.antebrands.com/en/so-sassi/37021-so-sassi-gabrielle.html"><img src="//static.msromantic.com/77358/so-sassi-gabrielle.jpg" alt="So Sassi Gabrielle" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/so-sassi/37021-so-sassi-gabrielle.html"><img src="//static.msromantic.com/77356/so-sassi-gabrielle.jpg" alt="So Sassi Gabrielle" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/so-sassi/37021-so-sassi-gabrielle.html](https://www.antebrands.com/en/so-sassi/37021-so-sassi-gabrielle.html)

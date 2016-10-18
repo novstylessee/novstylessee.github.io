@@ -9,7 +9,7 @@ tags: [Atelier Aimée,Ballgown,Off The Shoulder,Floor-Length,Sleeveless]
 Just **$459.99**
 ###   Sleeveless Floor-Length Ballgown 
 <table><tr><td>BRANDS</td><td>Atelier Aimée</td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Neckline</td><td>Off The Shoulder</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/atelier-aimee/40838-atelier-aimee-2014-sabina-multi-color-wedding-dress.html"><img src="//static.msromantic.com/89241/atelier-aimee-2014-sabina-multi-color-wedding-dress.jpg" alt="Atelier Aimée 2014 sabina multi color wedding dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/atelier-aimee/40838-atelier-aimee-2014-sabina-multi-color-wedding-dress.html"><img src="//static.msromantic.com/89241/atelier-aimee-2014-sabina-multi-color-wedding-dress.jpg" alt="Atelier Aimée 2014 sabina multi color wedding dress" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/atelier-aimee/40838-atelier-aimee-2014-sabina-multi-color-wedding-dress.html](https://www.readybrides.com/en/atelier-aimee/40838-atelier-aimee-2014-sabina-multi-color-wedding-dress.html)
+Buy it: [https://www.antebrands.com/en/atelier-aimee/40838-atelier-aimee-2014-sabina-multi-color-wedding-dress.html](https://www.antebrands.com/en/atelier-aimee/40838-atelier-aimee-2014-sabina-multi-color-wedding-dress.html)

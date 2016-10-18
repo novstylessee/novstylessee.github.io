@@ -9,7 +9,7 @@ tags: [Ida Sjöstedt aw05]
 Just **$189.99**
 ### 
 
-<a href="https://www.readybrides.com/en/ida-sjoestedt-aw05/34610-ida-sjostedt-style-aw05-title-4.html"><img src="//static.msromantic.com/71793/ida-sjostedt-style-aw05-title-4.jpg" alt="Ida Sjostedt style aw05 Title 4" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ida-sjoestedt-aw05/34610-ida-sjostedt-style-aw05-title-4.html"><img src="//static.msromantic.com/71793/ida-sjostedt-style-aw05-title-4.jpg" alt="Ida Sjostedt style aw05 Title 4" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/ida-sjoestedt-aw05/34610-ida-sjostedt-style-aw05-title-4.html](https://www.readybrides.com/en/ida-sjoestedt-aw05/34610-ida-sjostedt-style-aw05-title-4.html)
+Buy it: [https://www.antebrands.com/en/ida-sjoestedt-aw05/34610-ida-sjostedt-style-aw05-title-4.html](https://www.antebrands.com/en/ida-sjoestedt-aw05/34610-ida-sjostedt-style-aw05-title-4.html)

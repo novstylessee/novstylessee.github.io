@@ -9,7 +9,7 @@ tags: [Ida Sjöstedt ss08]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/ida-sjoestedt-ss08/34594-ida-sjostedt-style-ss08-title-15.html"><img src="//static.msromantic.com/71777/ida-sjostedt-style-ss08-title-15.jpg" alt="Ida Sjostedt style ss08 Title 15" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ida-sjoestedt-ss08/34594-ida-sjostedt-style-ss08-title-15.html"><img src="//static.msromantic.com/71777/ida-sjostedt-style-ss08-title-15.jpg" alt="Ida Sjostedt style ss08 Title 15" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/ida-sjoestedt-ss08/34594-ida-sjostedt-style-ss08-title-15.html](https://www.readybrides.com/en/ida-sjoestedt-ss08/34594-ida-sjostedt-style-ss08-title-15.html)
+Buy it: [https://www.antebrands.com/en/ida-sjoestedt-ss08/34594-ida-sjostedt-style-ss08-title-15.html](https://www.antebrands.com/en/ida-sjoestedt-ss08/34594-ida-sjostedt-style-ss08-title-15.html)

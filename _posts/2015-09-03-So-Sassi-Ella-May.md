@@ -9,7 +9,7 @@ tags: [So Sassi]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/so-sassi/37019-so-sassi-ella-may.html"><img src="//static.msromantic.com/77353/so-sassi-ella-may.jpg" alt="So Sassi Ella May" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/so-sassi/37019-so-sassi-ella-may.html"><img src="//static.msromantic.com/77353/so-sassi-ella-may.jpg" alt="So Sassi Ella May" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/so-sassi/37019-so-sassi-ella-may.html"><img src="//static.msromantic.com/77352/so-sassi-ella-may.jpg" alt="So Sassi Ella May" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/so-sassi/37019-so-sassi-ella-may.html](https://www.readybrides.com/en/so-sassi/37019-so-sassi-ella-may.html)
+<!-- break --><a href="https://www.antebrands.com/en/so-sassi/37019-so-sassi-ella-may.html"><img src="//static.msromantic.com/77352/so-sassi-ella-may.jpg" alt="So Sassi Ella May" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/so-sassi/37019-so-sassi-ella-may.html](https://www.antebrands.com/en/so-sassi/37019-so-sassi-ella-may.html)

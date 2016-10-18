@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Gem Collection]
 Just **$239.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-gem-collection/36366-jonathan-james-couture-ula.html"><img src="//static.msromantic.com/75779/jonathan-james-couture-ula.jpg" alt="Jonathan James Couture Ula" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-gem-collection/36366-jonathan-james-couture-ula.html"><img src="//static.msromantic.com/75779/jonathan-james-couture-ula.jpg" alt="Jonathan James Couture Ula" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-gem-collection/36366-jonathan-james-couture-ula.html](https://www.readybrides.com/en/jonathan-james-couture-gem-collection/36366-jonathan-james-couture-ula.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-gem-collection/36366-jonathan-james-couture-ula.html](https://www.antebrands.com/en/jonathan-james-couture-gem-collection/36366-jonathan-james-couture-ula.html)

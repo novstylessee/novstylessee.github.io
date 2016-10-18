@@ -9,7 +9,7 @@ tags: [So Sassi]
 Just **$239.99**
 ### 
 
-<a href="https://www.readybrides.com/en/so-sassi/37010-so-sassi-anya-jacket.html"><img src="//static.msromantic.com/77335/so-sassi-anya-jacket.jpg" alt="So Sassi Anya jacket" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/so-sassi/37010-so-sassi-anya-jacket.html"><img src="//static.msromantic.com/77335/so-sassi-anya-jacket.jpg" alt="So Sassi Anya jacket" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/so-sassi/37010-so-sassi-anya-jacket.html"><img src="//static.msromantic.com/77334/so-sassi-anya-jacket.jpg" alt="So Sassi Anya jacket" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/so-sassi/37010-so-sassi-anya-jacket.html](https://www.readybrides.com/en/so-sassi/37010-so-sassi-anya-jacket.html)
+<!-- break --><a href="https://www.antebrands.com/en/so-sassi/37010-so-sassi-anya-jacket.html"><img src="//static.msromantic.com/77334/so-sassi-anya-jacket.jpg" alt="So Sassi Anya jacket" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/so-sassi/37010-so-sassi-anya-jacket.html](https://www.antebrands.com/en/so-sassi/37010-so-sassi-anya-jacket.html)

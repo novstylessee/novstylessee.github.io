@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Icon Collection]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36370-jonathan-james-couture-georgina.html"><img src="//static.msromantic.com/75783/jonathan-james-couture-georgina.jpg" alt="Jonathan James Couture Georgina" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36370-jonathan-james-couture-georgina.html"><img src="//static.msromantic.com/75783/jonathan-james-couture-georgina.jpg" alt="Jonathan James Couture Georgina" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36370-jonathan-james-couture-georgina.html](https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36370-jonathan-james-couture-georgina.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36370-jonathan-james-couture-georgina.html](https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36370-jonathan-james-couture-georgina.html)

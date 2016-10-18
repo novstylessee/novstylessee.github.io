@@ -9,7 +9,7 @@ tags: [Kisui Berlin,Kusui Berlin,Aline/Princess ,Scoop Neck,Floor-Length,Short S
 Just **$289.71**
 ###   Short Sleeves Floor-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>Kusui Berlin</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Scoop Neck</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/kisui-berlin/36541-kisui-frida.html"><img src="//static.msromantic.com/76064/kisui-frida.jpg" alt="Kisui frida" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kisui-berlin/36541-kisui-frida.html"><img src="//static.msromantic.com/76064/kisui-frida.jpg" alt="Kisui frida" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/kisui-berlin/36541-kisui-frida.html"><img src="//static.msromantic.com/76063/kisui-frida.jpg" alt="Kisui frida" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/kisui-berlin/36541-kisui-frida.html](https://www.readybrides.com/en/kisui-berlin/36541-kisui-frida.html)
+<!-- break --><a href="https://www.antebrands.com/en/kisui-berlin/36541-kisui-frida.html"><img src="//static.msromantic.com/76063/kisui-frida.jpg" alt="Kisui frida" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/kisui-berlin/36541-kisui-frida.html](https://www.antebrands.com/en/kisui-berlin/36541-kisui-frida.html)

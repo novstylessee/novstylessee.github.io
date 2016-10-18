@@ -9,8 +9,8 @@ tags: [Jovani Pageant Dresses]
 Just **$399.99**
 ###      
 <table><tr><td>BRANDS</td><td>Jovani Pageant Dresses</td></tr></table>
-<a href="https://www.readybrides.com/en/jovani-pageant-dresses/40487-satin-mermaid-gown-24683.html"><img src="//static.msromantic.com/88206/satin-mermaid-gown-24683.jpg" alt="Satin Mermaid Gown 24683" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-pageant-dresses/40487-satin-mermaid-gown-24683.html"><img src="//static.msromantic.com/88206/satin-mermaid-gown-24683.jpg" alt="Satin Mermaid Gown 24683" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/jovani-pageant-dresses/40487-satin-mermaid-gown-24683.html"><img src="//static.msromantic.com/88207/satin-mermaid-gown-24683.jpg" alt="Satin Mermaid Gown 24683" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/jovani-pageant-dresses/40487-satin-mermaid-gown-24683.html"><img src="//static.msromantic.com/88205/satin-mermaid-gown-24683.jpg" alt="Satin Mermaid Gown 24683" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/jovani-pageant-dresses/40487-satin-mermaid-gown-24683.html](https://www.readybrides.com/en/jovani-pageant-dresses/40487-satin-mermaid-gown-24683.html)
+<!-- break --><a href="https://www.antebrands.com/en/jovani-pageant-dresses/40487-satin-mermaid-gown-24683.html"><img src="//static.msromantic.com/88207/satin-mermaid-gown-24683.jpg" alt="Satin Mermaid Gown 24683" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-pageant-dresses/40487-satin-mermaid-gown-24683.html"><img src="//static.msromantic.com/88205/satin-mermaid-gown-24683.jpg" alt="Satin Mermaid Gown 24683" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/jovani-pageant-dresses/40487-satin-mermaid-gown-24683.html](https://www.antebrands.com/en/jovani-pageant-dresses/40487-satin-mermaid-gown-24683.html)

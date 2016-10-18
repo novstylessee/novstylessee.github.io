@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Fairytale Collection]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-fairytale-collection/36316-jonathan-james-couture-atalanta.html"><img src="//static.msromantic.com/75729/jonathan-james-couture-atalanta.jpg" alt="Jonathan James Couture Atalanta" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-fairytale-collection/36316-jonathan-james-couture-atalanta.html"><img src="//static.msromantic.com/75729/jonathan-james-couture-atalanta.jpg" alt="Jonathan James Couture Atalanta" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-fairytale-collection/36316-jonathan-james-couture-atalanta.html](https://www.readybrides.com/en/jonathan-james-couture-fairytale-collection/36316-jonathan-james-couture-atalanta.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-fairytale-collection/36316-jonathan-james-couture-atalanta.html](https://www.antebrands.com/en/jonathan-james-couture-fairytale-collection/36316-jonathan-james-couture-atalanta.html)

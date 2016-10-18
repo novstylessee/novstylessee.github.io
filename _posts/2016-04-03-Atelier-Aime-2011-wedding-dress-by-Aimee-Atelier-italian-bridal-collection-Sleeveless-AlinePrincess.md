@@ -9,7 +9,7 @@ tags: [Atelier Aimée,Aline/Princess ,Sweetheart,Sleeveless]
 Just **$569.99**
 ###   Sleeveless  Aline/Princess  
 <table><tr><td>BRANDS</td><td>Atelier Aimée</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/atelier-aimee/40968-2011-wedding-dress-by-aimee-atelier-italian-bridal-collection.html"><img src="//static.msromantic.com/89405/2011-wedding-dress-by-aimee-atelier-italian-bridal-collection.jpg" alt="2011 wedding dress by Aimee Atelier, italian bridal collection" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/atelier-aimee/40968-2011-wedding-dress-by-aimee-atelier-italian-bridal-collection.html"><img src="//static.msromantic.com/89405/2011-wedding-dress-by-aimee-atelier-italian-bridal-collection.jpg" alt="2011 wedding dress by Aimee Atelier, italian bridal collection" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/atelier-aimee/40968-2011-wedding-dress-by-aimee-atelier-italian-bridal-collection.html"><img src="//static.msromantic.com/89404/2011-wedding-dress-by-aimee-atelier-italian-bridal-collection.jpg" alt="2011 wedding dress by Aimee Atelier, italian bridal collection" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/atelier-aimee/40968-2011-wedding-dress-by-aimee-atelier-italian-bridal-collection.html](https://www.readybrides.com/en/atelier-aimee/40968-2011-wedding-dress-by-aimee-atelier-italian-bridal-collection.html)
+<!-- break --><a href="https://www.antebrands.com/en/atelier-aimee/40968-2011-wedding-dress-by-aimee-atelier-italian-bridal-collection.html"><img src="//static.msromantic.com/89404/2011-wedding-dress-by-aimee-atelier-italian-bridal-collection.jpg" alt="2011 wedding dress by Aimee Atelier, italian bridal collection" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/atelier-aimee/40968-2011-wedding-dress-by-aimee-atelier-italian-bridal-collection.html](https://www.antebrands.com/en/atelier-aimee/40968-2011-wedding-dress-by-aimee-atelier-italian-bridal-collection.html)

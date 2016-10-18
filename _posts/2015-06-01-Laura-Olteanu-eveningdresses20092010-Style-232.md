@@ -9,7 +9,7 @@ tags: [Laura Olteanu evening-dresses-2009-2010]
 Just **$719.99**
 ### 
 
-<a href="https://www.readybrides.com/en/laura-olteanu-evening-dresses-2009-2010/41595-laura-olteanu-evening-dresses-2009-2010-style-232.html"><img src="//static.msromantic.com/90894/laura-olteanu-evening-dresses-2009-2010-style-232.jpg" alt="Laura Olteanu evening-dresses-2009-2010 Style 232" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/laura-olteanu-evening-dresses-2009-2010/41595-laura-olteanu-evening-dresses-2009-2010-style-232.html"><img src="//static.msromantic.com/90894/laura-olteanu-evening-dresses-2009-2010-style-232.jpg" alt="Laura Olteanu evening-dresses-2009-2010 Style 232" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/laura-olteanu-evening-dresses-2009-2010/41595-laura-olteanu-evening-dresses-2009-2010-style-232.html](https://www.readybrides.com/en/laura-olteanu-evening-dresses-2009-2010/41595-laura-olteanu-evening-dresses-2009-2010-style-232.html)
+Buy it: [https://www.antebrands.com/en/laura-olteanu-evening-dresses-2009-2010/41595-laura-olteanu-evening-dresses-2009-2010-style-232.html](https://www.antebrands.com/en/laura-olteanu-evening-dresses-2009-2010/41595-laura-olteanu-evening-dresses-2009-2010-style-232.html)

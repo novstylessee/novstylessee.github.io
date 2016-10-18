@@ -9,7 +9,7 @@ tags: [So Sassi]
 Just **$239.99**
 ### 
 
-<a href="https://www.readybrides.com/en/so-sassi/37045-so-sassi-paige-shrug.html"><img src="//static.msromantic.com/77408/so-sassi-paige-shrug.jpg" alt="So Sassi Paige shrug" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/so-sassi/37045-so-sassi-paige-shrug.html"><img src="//static.msromantic.com/77408/so-sassi-paige-shrug.jpg" alt="So Sassi Paige shrug" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/so-sassi/37045-so-sassi-paige-shrug.html"><img src="//static.msromantic.com/77407/so-sassi-paige-shrug.jpg" alt="So Sassi Paige shrug" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/so-sassi/37045-so-sassi-paige-shrug.html](https://www.readybrides.com/en/so-sassi/37045-so-sassi-paige-shrug.html)
+<!-- break --><a href="https://www.antebrands.com/en/so-sassi/37045-so-sassi-paige-shrug.html"><img src="//static.msromantic.com/77407/so-sassi-paige-shrug.jpg" alt="So Sassi Paige shrug" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/so-sassi/37045-so-sassi-paige-shrug.html](https://www.antebrands.com/en/so-sassi/37045-so-sassi-paige-shrug.html)

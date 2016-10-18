@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Gem Collection]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-gem-collection/36349-jonathan-james-couture-iona.html"><img src="//static.msromantic.com/75762/jonathan-james-couture-iona.jpg" alt="Jonathan James Couture Iona" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-gem-collection/36349-jonathan-james-couture-iona.html"><img src="//static.msromantic.com/75762/jonathan-james-couture-iona.jpg" alt="Jonathan James Couture Iona" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-gem-collection/36349-jonathan-james-couture-iona.html](https://www.readybrides.com/en/jonathan-james-couture-gem-collection/36349-jonathan-james-couture-iona.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-gem-collection/36349-jonathan-james-couture-iona.html](https://www.antebrands.com/en/jonathan-james-couture-gem-collection/36349-jonathan-james-couture-iona.html)

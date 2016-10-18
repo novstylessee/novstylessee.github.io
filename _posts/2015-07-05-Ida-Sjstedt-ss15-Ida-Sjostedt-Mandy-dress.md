@@ -9,7 +9,7 @@ tags: [Ida Sjöstedt ss15]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/ida-sjoestedt-ss15/34624-ida-sjostedt-mandy-dress.html"><img src="//static.msromantic.com/71807/ida-sjostedt-mandy-dress.jpg" alt="Ida Sjostedt Mandy dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ida-sjoestedt-ss15/34624-ida-sjostedt-mandy-dress.html"><img src="//static.msromantic.com/71807/ida-sjostedt-mandy-dress.jpg" alt="Ida Sjostedt Mandy dress" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/ida-sjoestedt-ss15/34624-ida-sjostedt-mandy-dress.html](https://www.readybrides.com/en/ida-sjoestedt-ss15/34624-ida-sjostedt-mandy-dress.html)
+Buy it: [https://www.antebrands.com/en/ida-sjoestedt-ss15/34624-ida-sjostedt-mandy-dress.html](https://www.antebrands.com/en/ida-sjoestedt-ss15/34624-ida-sjostedt-mandy-dress.html)

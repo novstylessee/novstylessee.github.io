@@ -9,7 +9,7 @@ tags: [Jovani ,Jovani,Sheath/Column,Illusion,Sweep/Brush Train,Sleeveless]
 Just **$470.98**
 ###   Sleeveless Sweep/Brush Train Sheath/Column 
 <table><tr><td>BRANDS</td><td>Jovani</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Illusion</td></tr><tr><td>Hemline/Train</td><td>Sweep/Brush Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/jovani-/39631-jovani-black-open-back-prom-dress-26569.html"><img src="//static.msromantic.com/85456/jovani-black-open-back-prom-dress-26569.jpg" alt="Jovani Black Open Back Prom Dress 26569" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-/39631-jovani-black-open-back-prom-dress-26569.html"><img src="//static.msromantic.com/85456/jovani-black-open-back-prom-dress-26569.jpg" alt="Jovani Black Open Back Prom Dress 26569" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jovani-/39631-jovani-black-open-back-prom-dress-26569.html](https://www.readybrides.com/en/jovani-/39631-jovani-black-open-back-prom-dress-26569.html)
+Buy it: [https://www.antebrands.com/en/jovani-/39631-jovani-black-open-back-prom-dress-26569.html](https://www.antebrands.com/en/jovani-/39631-jovani-black-open-back-prom-dress-26569.html)

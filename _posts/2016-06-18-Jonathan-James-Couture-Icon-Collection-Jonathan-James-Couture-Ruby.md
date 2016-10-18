@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Icon Collection]
 Just **$249.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36374-jonathan-james-couture-ruby.html"><img src="//static.msromantic.com/75787/jonathan-james-couture-ruby.jpg" alt="Jonathan James Couture Ruby" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36374-jonathan-james-couture-ruby.html"><img src="//static.msromantic.com/75787/jonathan-james-couture-ruby.jpg" alt="Jonathan James Couture Ruby" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36374-jonathan-james-couture-ruby.html](https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36374-jonathan-james-couture-ruby.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36374-jonathan-james-couture-ruby.html](https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36374-jonathan-james-couture-ruby.html)

@@ -9,8 +9,8 @@ tags: [So Sassi]
 Just **$259.99**
 ### 
 
-<a href="https://www.readybrides.com/en/so-sassi/37018-so-sassi-colette.html"><img src="//static.msromantic.com/77350/so-sassi-colette.jpg" alt="So Sassi Colette" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/so-sassi/37018-so-sassi-colette.html"><img src="//static.msromantic.com/77350/so-sassi-colette.jpg" alt="So Sassi Colette" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/so-sassi/37018-so-sassi-colette.html"><img src="//static.msromantic.com/77351/so-sassi-colette.jpg" alt="So Sassi Colette" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/so-sassi/37018-so-sassi-colette.html"><img src="//static.msromantic.com/77349/so-sassi-colette.jpg" alt="So Sassi Colette" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/so-sassi/37018-so-sassi-colette.html](https://www.readybrides.com/en/so-sassi/37018-so-sassi-colette.html)
+<!-- break --><a href="https://www.antebrands.com/en/so-sassi/37018-so-sassi-colette.html"><img src="//static.msromantic.com/77351/so-sassi-colette.jpg" alt="So Sassi Colette" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/so-sassi/37018-so-sassi-colette.html"><img src="//static.msromantic.com/77349/so-sassi-colette.jpg" alt="So Sassi Colette" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/so-sassi/37018-so-sassi-colette.html](https://www.antebrands.com/en/so-sassi/37018-so-sassi-colette.html)

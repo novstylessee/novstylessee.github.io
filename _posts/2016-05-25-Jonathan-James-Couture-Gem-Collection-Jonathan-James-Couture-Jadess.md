@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Gem Collection]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-gem-collection/36350-jonathan-james-couture-jadess.html"><img src="//static.msromantic.com/75763/jonathan-james-couture-jadess.jpg" alt="Jonathan James Couture Jadess" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-gem-collection/36350-jonathan-james-couture-jadess.html"><img src="//static.msromantic.com/75763/jonathan-james-couture-jadess.jpg" alt="Jonathan James Couture Jadess" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-gem-collection/36350-jonathan-james-couture-jadess.html](https://www.readybrides.com/en/jonathan-james-couture-gem-collection/36350-jonathan-james-couture-jadess.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-gem-collection/36350-jonathan-james-couture-jadess.html](https://www.antebrands.com/en/jonathan-james-couture-gem-collection/36350-jonathan-james-couture-jadess.html)

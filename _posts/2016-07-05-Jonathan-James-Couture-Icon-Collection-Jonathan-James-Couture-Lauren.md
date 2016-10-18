@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Icon Collection]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36391-jonathan-james-couture-lauren.html"><img src="//static.msromantic.com/75804/jonathan-james-couture-lauren.jpg" alt="Jonathan James Couture Lauren" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36391-jonathan-james-couture-lauren.html"><img src="//static.msromantic.com/75804/jonathan-james-couture-lauren.jpg" alt="Jonathan James Couture Lauren" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36391-jonathan-james-couture-lauren.html](https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36391-jonathan-james-couture-lauren.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36391-jonathan-james-couture-lauren.html](https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36391-jonathan-james-couture-lauren.html)

@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Gem Collection]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-gem-collection/36334-jonathan-james-couture-amethy.html"><img src="//static.msromantic.com/75747/jonathan-james-couture-amethy.jpg" alt="Jonathan James Couture Amethy" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-gem-collection/36334-jonathan-james-couture-amethy.html"><img src="//static.msromantic.com/75747/jonathan-james-couture-amethy.jpg" alt="Jonathan James Couture Amethy" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-gem-collection/36334-jonathan-james-couture-amethy.html](https://www.readybrides.com/en/jonathan-james-couture-gem-collection/36334-jonathan-james-couture-amethy.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-gem-collection/36334-jonathan-james-couture-amethy.html](https://www.antebrands.com/en/jonathan-james-couture-gem-collection/36334-jonathan-james-couture-amethy.html)

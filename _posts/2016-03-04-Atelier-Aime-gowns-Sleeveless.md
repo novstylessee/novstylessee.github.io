@@ -9,7 +9,7 @@ tags: [Atelier Aimée,Jillian,Sleeveless]
 Just **$479.99**
 ###   Sleeveless   
 <table><tr><td>BRANDS</td><td>Jillian</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/atelier-aimee/40938-atelier-aimee-gowns.html"><img src="//static.msromantic.com/89370/atelier-aimee-gowns.jpg" alt="Atelier Aimée gowns" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/atelier-aimee/40938-atelier-aimee-gowns.html"><img src="//static.msromantic.com/89370/atelier-aimee-gowns.jpg" alt="Atelier Aimée gowns" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/atelier-aimee/40938-atelier-aimee-gowns.html](https://www.readybrides.com/en/atelier-aimee/40938-atelier-aimee-gowns.html)
+Buy it: [https://www.antebrands.com/en/atelier-aimee/40938-atelier-aimee-gowns.html](https://www.antebrands.com/en/atelier-aimee/40938-atelier-aimee-gowns.html)

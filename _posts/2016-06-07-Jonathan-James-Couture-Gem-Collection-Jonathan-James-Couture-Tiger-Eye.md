@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Gem Collection]
 Just **$259.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-gem-collection/36363-jonathan-james-couture-tiger-eye.html"><img src="//static.msromantic.com/75776/jonathan-james-couture-tiger-eye.jpg" alt="Jonathan James Couture Tiger Eye" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-gem-collection/36363-jonathan-james-couture-tiger-eye.html"><img src="//static.msromantic.com/75776/jonathan-james-couture-tiger-eye.jpg" alt="Jonathan James Couture Tiger Eye" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-gem-collection/36363-jonathan-james-couture-tiger-eye.html](https://www.readybrides.com/en/jonathan-james-couture-gem-collection/36363-jonathan-james-couture-tiger-eye.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-gem-collection/36363-jonathan-james-couture-tiger-eye.html](https://www.antebrands.com/en/jonathan-james-couture-gem-collection/36363-jonathan-james-couture-tiger-eye.html)

@@ -9,7 +9,7 @@ tags: [Jovani Pageant Dresses]
 Just **$359.99**
 ###      
 <table><tr><td>BRANDS</td><td>Jovani Pageant Dresses</td></tr></table>
-<a href="https://www.readybrides.com/en/jovani-pageant-dresses/40427-strapless-satin-gown-97141.html"><img src="//static.msromantic.com/88058/strapless-satin-gown-97141.jpg" alt="Strapless Satin Gown 97141" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-pageant-dresses/40427-strapless-satin-gown-97141.html"><img src="//static.msromantic.com/88058/strapless-satin-gown-97141.jpg" alt="Strapless Satin Gown 97141" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jovani-pageant-dresses/40427-strapless-satin-gown-97141.html](https://www.readybrides.com/en/jovani-pageant-dresses/40427-strapless-satin-gown-97141.html)
+Buy it: [https://www.antebrands.com/en/jovani-pageant-dresses/40427-strapless-satin-gown-97141.html](https://www.antebrands.com/en/jovani-pageant-dresses/40427-strapless-satin-gown-97141.html)

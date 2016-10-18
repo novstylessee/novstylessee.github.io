@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Gem Collection]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-gem-collection/36344-jonathan-james-couture-galena.html"><img src="//static.msromantic.com/75757/jonathan-james-couture-galena.jpg" alt="Jonathan James Couture Galena" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-gem-collection/36344-jonathan-james-couture-galena.html"><img src="//static.msromantic.com/75757/jonathan-james-couture-galena.jpg" alt="Jonathan James Couture Galena" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-gem-collection/36344-jonathan-james-couture-galena.html](https://www.readybrides.com/en/jonathan-james-couture-gem-collection/36344-jonathan-james-couture-galena.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-gem-collection/36344-jonathan-james-couture-galena.html](https://www.antebrands.com/en/jonathan-james-couture-gem-collection/36344-jonathan-james-couture-galena.html)

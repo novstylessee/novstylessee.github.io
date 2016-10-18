@@ -9,7 +9,7 @@ tags: [La Sposa,Mermaid/Trumpet,Bateau,Floor-Length,Short Sleeves]
 Just **$369.99**
 ###   Short Sleeves Floor-Length Mermaid/Trumpet 
 <table><tr><td>BRANDS</td><td>La Sposa</td></tr><tr><td>Silhouette</td><td>Mermaid/Trumpet</td></tr><tr><td>Neckline</td><td>Bateau</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/la-sposa/42988-la-sposa-5311.html"><img src="//static.msromantic.com/94236/la-sposa-5311.jpg" alt="La Sposa 5311" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/la-sposa/42988-la-sposa-5311.html"><img src="//static.msromantic.com/94236/la-sposa-5311.jpg" alt="La Sposa 5311" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/la-sposa/42988-la-sposa-5311.html](https://www.readybrides.com/en/la-sposa/42988-la-sposa-5311.html)
+Buy it: [https://www.antebrands.com/en/la-sposa/42988-la-sposa-5311.html](https://www.antebrands.com/en/la-sposa/42988-la-sposa-5311.html)

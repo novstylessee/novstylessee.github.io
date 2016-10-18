@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Uber Collection]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-uber-collection/36417-jonathan-james-couture-brooklyn.html"><img src="//static.msromantic.com/75830/jonathan-james-couture-brooklyn.jpg" alt="Jonathan James Couture Brooklyn" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-uber-collection/36417-jonathan-james-couture-brooklyn.html"><img src="//static.msromantic.com/75830/jonathan-james-couture-brooklyn.jpg" alt="Jonathan James Couture Brooklyn" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-uber-collection/36417-jonathan-james-couture-brooklyn.html](https://www.readybrides.com/en/jonathan-james-couture-uber-collection/36417-jonathan-james-couture-brooklyn.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-uber-collection/36417-jonathan-james-couture-brooklyn.html](https://www.antebrands.com/en/jonathan-james-couture-uber-collection/36417-jonathan-james-couture-brooklyn.html)

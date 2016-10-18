@@ -9,7 +9,7 @@ tags: [Judd Waddell ,Judd Waddell,Aline/Princess ,Sleeveless]
 Just **$289.99**
 ###   Sleeveless  Aline/Princess  
 <table><tr><td>BRANDS</td><td>Judd Waddell</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/judd-waddell-/41233-judd-waddell-constance.html"><img src="//static.msromantic.com/89736/judd-waddell-constance.jpg" alt="Judd Waddell Constance" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/judd-waddell-/41233-judd-waddell-constance.html"><img src="//static.msromantic.com/89736/judd-waddell-constance.jpg" alt="Judd Waddell Constance" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/judd-waddell-/41233-judd-waddell-constance.html](https://www.readybrides.com/en/judd-waddell-/41233-judd-waddell-constance.html)
+Buy it: [https://www.antebrands.com/en/judd-waddell-/41233-judd-waddell-constance.html](https://www.antebrands.com/en/judd-waddell-/41233-judd-waddell-constance.html)

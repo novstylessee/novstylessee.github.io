@@ -9,7 +9,7 @@ tags: [Atelier Aimée,Illusion,Short Sleeves]
 Just **$549.99**
 ###   Short Sleeves   
 <table><tr><td>BRANDS</td><td>Atelier Aimée</td></tr><tr><td>Neckline</td><td>Illusion</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/atelier-aimee/40947-atelier-aimee-2012-sira-high-neck-lace-wedding-dress.html"><img src="//static.msromantic.com/89379/atelier-aimee-2012-sira-high-neck-lace-wedding-dress.jpg" alt="Atelier Aimée 2012 - sira high neck lace wedding dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/atelier-aimee/40947-atelier-aimee-2012-sira-high-neck-lace-wedding-dress.html"><img src="//static.msromantic.com/89379/atelier-aimee-2012-sira-high-neck-lace-wedding-dress.jpg" alt="Atelier Aimée 2012 - sira high neck lace wedding dress" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/atelier-aimee/40947-atelier-aimee-2012-sira-high-neck-lace-wedding-dress.html](https://www.readybrides.com/en/atelier-aimee/40947-atelier-aimee-2012-sira-high-neck-lace-wedding-dress.html)
+Buy it: [https://www.antebrands.com/en/atelier-aimee/40947-atelier-aimee-2012-sira-high-neck-lace-wedding-dress.html](https://www.antebrands.com/en/atelier-aimee/40947-atelier-aimee-2012-sira-high-neck-lace-wedding-dress.html)

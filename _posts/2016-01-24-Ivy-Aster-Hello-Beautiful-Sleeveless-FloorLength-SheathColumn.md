@@ -9,7 +9,7 @@ tags: [Ivy & Aster ,Ivy & Aster,Sheath/Column,One shoulder,Floor-Length,Sleevele
 Just **$269.99**
 ###   Sleeveless Floor-Length Sheath/Column 
 <table><tr><td>BRANDS</td><td>Ivy & Aster</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>One shoulder</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/ivy-aster-/34827-ivy-aster-hello-beautiful.html"><img src="//static.msromantic.com/72126/ivy-aster-hello-beautiful.jpg" alt="Ivy & Aster Hello Beautiful" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ivy-aster-/34827-ivy-aster-hello-beautiful.html"><img src="//static.msromantic.com/72126/ivy-aster-hello-beautiful.jpg" alt="Ivy & Aster Hello Beautiful" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/ivy-aster-/34827-ivy-aster-hello-beautiful.html"><img src="//static.msromantic.com/72125/ivy-aster-hello-beautiful.jpg" alt="Ivy & Aster Hello Beautiful" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/ivy-aster-/34827-ivy-aster-hello-beautiful.html](https://www.readybrides.com/en/ivy-aster-/34827-ivy-aster-hello-beautiful.html)
+<!-- break --><a href="https://www.antebrands.com/en/ivy-aster-/34827-ivy-aster-hello-beautiful.html"><img src="//static.msromantic.com/72125/ivy-aster-hello-beautiful.jpg" alt="Ivy & Aster Hello Beautiful" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/ivy-aster-/34827-ivy-aster-hello-beautiful.html](https://www.antebrands.com/en/ivy-aster-/34827-ivy-aster-hello-beautiful.html)

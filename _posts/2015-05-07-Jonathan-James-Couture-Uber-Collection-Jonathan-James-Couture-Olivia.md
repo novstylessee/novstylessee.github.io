@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Uber Collection]
 Just **$439.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-uber-collection/36433-jonathan-james-couture-olivia.html"><img src="//static.msromantic.com/75846/jonathan-james-couture-olivia.jpg" alt="Jonathan James Couture Olivia" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-uber-collection/36433-jonathan-james-couture-olivia.html"><img src="//static.msromantic.com/75846/jonathan-james-couture-olivia.jpg" alt="Jonathan James Couture Olivia" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-uber-collection/36433-jonathan-james-couture-olivia.html](https://www.readybrides.com/en/jonathan-james-couture-uber-collection/36433-jonathan-james-couture-olivia.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-uber-collection/36433-jonathan-james-couture-olivia.html](https://www.antebrands.com/en/jonathan-james-couture-uber-collection/36433-jonathan-james-couture-olivia.html)

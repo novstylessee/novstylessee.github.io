@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Uber Collection]
 Just **$379.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-uber-collection/36415-jonathan-james-couture-brianna.html"><img src="//static.msromantic.com/75828/jonathan-james-couture-brianna.jpg" alt="Jonathan James Couture Brianna" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-uber-collection/36415-jonathan-james-couture-brianna.html"><img src="//static.msromantic.com/75828/jonathan-james-couture-brianna.jpg" alt="Jonathan James Couture Brianna" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-uber-collection/36415-jonathan-james-couture-brianna.html](https://www.readybrides.com/en/jonathan-james-couture-uber-collection/36415-jonathan-james-couture-brianna.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-uber-collection/36415-jonathan-james-couture-brianna.html](https://www.antebrands.com/en/jonathan-james-couture-uber-collection/36415-jonathan-james-couture-brianna.html)

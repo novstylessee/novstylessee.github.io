@@ -9,7 +9,7 @@ tags: [La Sposa,Aline/Princess ,Queen Anne,Floor-Length,3/4 Sleeves]
 Just **$349.99**
 ###   3/4 Sleeves Floor-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>La Sposa</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Queen Anne</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>3/4 Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/la-sposa/42854-la-sposa-5344.html"><img src="//static.msromantic.com/94000/la-sposa-5344.jpg" alt="La Sposa 5344" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/la-sposa/42854-la-sposa-5344.html"><img src="//static.msromantic.com/94000/la-sposa-5344.jpg" alt="La Sposa 5344" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/la-sposa/42854-la-sposa-5344.html](https://www.readybrides.com/en/la-sposa/42854-la-sposa-5344.html)
+Buy it: [https://www.antebrands.com/en/la-sposa/42854-la-sposa-5344.html](https://www.antebrands.com/en/la-sposa/42854-la-sposa-5344.html)

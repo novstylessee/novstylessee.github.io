@@ -9,7 +9,7 @@ tags: [Jenny Lee ,Jenny Lee,Aline/Princess ,Illusion,Short Sleeves]
 Just **$339.99**
 ###   Short Sleeves  Aline/Princess  
 <table><tr><td>BRANDS</td><td>Jenny Lee</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Illusion</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/jenny-lee-/34750-jenny-lee-bridal-style-number-1416.html"><img src="//static.msromantic.com/72003/jenny-lee-bridal-style-number-1416.jpg" alt="Jenny Lee Bridal Style Number: 1416" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jenny-lee-/34750-jenny-lee-bridal-style-number-1416.html"><img src="//static.msromantic.com/72003/jenny-lee-bridal-style-number-1416.jpg" alt="Jenny Lee Bridal Style Number: 1416" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jenny-lee-/34750-jenny-lee-bridal-style-number-1416.html](https://www.readybrides.com/en/jenny-lee-/34750-jenny-lee-bridal-style-number-1416.html)
+Buy it: [https://www.antebrands.com/en/jenny-lee-/34750-jenny-lee-bridal-style-number-1416.html](https://www.antebrands.com/en/jenny-lee-/34750-jenny-lee-bridal-style-number-1416.html)

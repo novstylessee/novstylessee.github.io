@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Uber Collection]
 Just **$399.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-uber-collection/36439-jonathan-james-couture-taylor.html"><img src="//static.msromantic.com/75852/jonathan-james-couture-taylor.jpg" alt="Jonathan James Couture Taylor" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-uber-collection/36439-jonathan-james-couture-taylor.html"><img src="//static.msromantic.com/75852/jonathan-james-couture-taylor.jpg" alt="Jonathan James Couture Taylor" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-uber-collection/36439-jonathan-james-couture-taylor.html](https://www.readybrides.com/en/jonathan-james-couture-uber-collection/36439-jonathan-james-couture-taylor.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-uber-collection/36439-jonathan-james-couture-taylor.html](https://www.antebrands.com/en/jonathan-james-couture-uber-collection/36439-jonathan-james-couture-taylor.html)

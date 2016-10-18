@@ -9,7 +9,7 @@ tags: [So Sassi]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/so-sassi/37014-so-sassi-bonnie.html"><img src="//static.msromantic.com/77342/so-sassi-bonnie.jpg" alt="So Sassi Bonnie" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/so-sassi/37014-so-sassi-bonnie.html"><img src="//static.msromantic.com/77342/so-sassi-bonnie.jpg" alt="So Sassi Bonnie" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/so-sassi/37014-so-sassi-bonnie.html](https://www.readybrides.com/en/so-sassi/37014-so-sassi-bonnie.html)
+Buy it: [https://www.antebrands.com/en/so-sassi/37014-so-sassi-bonnie.html](https://www.antebrands.com/en/so-sassi/37014-so-sassi-bonnie.html)

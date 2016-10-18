@@ -9,7 +9,7 @@ tags: [So Sassi]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/so-sassi/37011-so-sassi-annie.html"><img src="//static.msromantic.com/77336/so-sassi-annie.jpg" alt="So Sassi Annie" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/so-sassi/37011-so-sassi-annie.html"><img src="//static.msromantic.com/77336/so-sassi-annie.jpg" alt="So Sassi Annie" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/so-sassi/37011-so-sassi-annie.html](https://www.readybrides.com/en/so-sassi/37011-so-sassi-annie.html)
+Buy it: [https://www.antebrands.com/en/so-sassi/37011-so-sassi-annie.html](https://www.antebrands.com/en/so-sassi/37011-so-sassi-annie.html)

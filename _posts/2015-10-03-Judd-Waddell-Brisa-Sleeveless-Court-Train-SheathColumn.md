@@ -9,7 +9,7 @@ tags: [Judd Waddell ,Judd Waddell,Sheath/Column,Sweetheart,Court Train,Sleeveles
 Just **$289.99**
 ###   Sleeveless Court Train Sheath/Column 
 <table><tr><td>BRANDS</td><td>Judd Waddell</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Court Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/judd-waddell-/41252-judd-waddell-brisa.html"><img src="//static.msromantic.com/89762/judd-waddell-brisa.jpg" alt="Judd Waddell Brisa" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/judd-waddell-/41252-judd-waddell-brisa.html"><img src="//static.msromantic.com/89762/judd-waddell-brisa.jpg" alt="Judd Waddell Brisa" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/judd-waddell-/41252-judd-waddell-brisa.html"><img src="//static.msromantic.com/89761/judd-waddell-brisa.jpg" alt="Judd Waddell Brisa" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/judd-waddell-/41252-judd-waddell-brisa.html](https://www.readybrides.com/en/judd-waddell-/41252-judd-waddell-brisa.html)
+<!-- break --><a href="https://www.antebrands.com/en/judd-waddell-/41252-judd-waddell-brisa.html"><img src="//static.msromantic.com/89761/judd-waddell-brisa.jpg" alt="Judd Waddell Brisa" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/judd-waddell-/41252-judd-waddell-brisa.html](https://www.antebrands.com/en/judd-waddell-/41252-judd-waddell-brisa.html)

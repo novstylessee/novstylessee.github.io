@@ -9,8 +9,8 @@ tags: [Jovani ,Jovani,Sheath/Column,Bateau,Sweep/Brush Train,Sleeveless]
 Just **$448.98**
 ###   Sleeveless Sweep/Brush Train Sheath/Column 
 <table><tr><td>BRANDS</td><td>Jovani</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Bateau</td></tr><tr><td>Hemline/Train</td><td>Sweep/Brush Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/jovani-/38536-jovani-sequin-embellished-gown-jvn37558.html"><img src="//static.msromantic.com/82544/jovani-sequin-embellished-gown-jvn37558.jpg" alt="Jovani Sequin Embellished Gown JVN37558" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-/38536-jovani-sequin-embellished-gown-jvn37558.html"><img src="//static.msromantic.com/82544/jovani-sequin-embellished-gown-jvn37558.jpg" alt="Jovani Sequin Embellished Gown JVN37558" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/jovani-/38536-jovani-sequin-embellished-gown-jvn37558.html"><img src="//static.msromantic.com/82546/jovani-sequin-embellished-gown-jvn37558.jpg" alt="Jovani Sequin Embellished Gown JVN37558" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/jovani-/38536-jovani-sequin-embellished-gown-jvn37558.html"><img src="//static.msromantic.com/82540/jovani-sequin-embellished-gown-jvn37558.jpg" alt="Jovani Sequin Embellished Gown JVN37558" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/jovani-/38536-jovani-sequin-embellished-gown-jvn37558.html](https://www.readybrides.com/en/jovani-/38536-jovani-sequin-embellished-gown-jvn37558.html)
+<!-- break --><a href="https://www.antebrands.com/en/jovani-/38536-jovani-sequin-embellished-gown-jvn37558.html"><img src="//static.msromantic.com/82546/jovani-sequin-embellished-gown-jvn37558.jpg" alt="Jovani Sequin Embellished Gown JVN37558" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-/38536-jovani-sequin-embellished-gown-jvn37558.html"><img src="//static.msromantic.com/82540/jovani-sequin-embellished-gown-jvn37558.jpg" alt="Jovani Sequin Embellished Gown JVN37558" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/jovani-/38536-jovani-sequin-embellished-gown-jvn37558.html](https://www.antebrands.com/en/jovani-/38536-jovani-sequin-embellished-gown-jvn37558.html)

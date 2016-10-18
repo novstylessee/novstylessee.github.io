@@ -9,7 +9,7 @@ tags: [Ida Sjöstedt ss15]
 Just **$229.99**
 ### 
 
-<a href="https://www.readybrides.com/en/ida-sjoestedt-ss15/34627-ida-sjostedt-carey-dress.html"><img src="//static.msromantic.com/71810/ida-sjostedt-carey-dress.jpg" alt="Ida Sjostedt Carey dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ida-sjoestedt-ss15/34627-ida-sjostedt-carey-dress.html"><img src="//static.msromantic.com/71810/ida-sjostedt-carey-dress.jpg" alt="Ida Sjostedt Carey dress" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/ida-sjoestedt-ss15/34627-ida-sjostedt-carey-dress.html](https://www.readybrides.com/en/ida-sjoestedt-ss15/34627-ida-sjostedt-carey-dress.html)
+Buy it: [https://www.antebrands.com/en/ida-sjoestedt-ss15/34627-ida-sjostedt-carey-dress.html](https://www.antebrands.com/en/ida-sjoestedt-ss15/34627-ida-sjostedt-carey-dress.html)

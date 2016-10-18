@@ -9,7 +9,7 @@ tags: [Jenny Yoo Maternity]
 Just **$69.99**
 ###      
 <table><tr><td>BRANDS</td><td>Jenny Yoo Maternity</td></tr></table>
-<a href="https://www.readybrides.com/en/jenny-yoo-maternity/35169-jenny-yoo-holly-long.html"><img src="//static.msromantic.com/73543/jenny-yoo-holly-long.jpg" alt="Jenny Yoo HOLLY LONG" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jenny-yoo-maternity/35169-jenny-yoo-holly-long.html"><img src="//static.msromantic.com/73543/jenny-yoo-holly-long.jpg" alt="Jenny Yoo HOLLY LONG" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jenny-yoo-maternity/35169-jenny-yoo-holly-long.html](https://www.readybrides.com/en/jenny-yoo-maternity/35169-jenny-yoo-holly-long.html)
+Buy it: [https://www.antebrands.com/en/jenny-yoo-maternity/35169-jenny-yoo-holly-long.html](https://www.antebrands.com/en/jenny-yoo-maternity/35169-jenny-yoo-holly-long.html)

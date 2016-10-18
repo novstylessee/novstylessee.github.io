@@ -9,7 +9,7 @@ tags: [Ida Sjöstedt ss15]
 Just **$219.99**
 ### 
 
-<a href="https://www.readybrides.com/en/ida-sjoestedt-ss15/34620-ida-sjostedt-primrose-dress.html"><img src="//static.msromantic.com/71803/ida-sjostedt-primrose-dress.jpg" alt="Ida Sjostedt Primrose dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ida-sjoestedt-ss15/34620-ida-sjostedt-primrose-dress.html"><img src="//static.msromantic.com/71803/ida-sjostedt-primrose-dress.jpg" alt="Ida Sjostedt Primrose dress" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/ida-sjoestedt-ss15/34620-ida-sjostedt-primrose-dress.html](https://www.readybrides.com/en/ida-sjoestedt-ss15/34620-ida-sjostedt-primrose-dress.html)
+Buy it: [https://www.antebrands.com/en/ida-sjoestedt-ss15/34620-ida-sjostedt-primrose-dress.html](https://www.antebrands.com/en/ida-sjoestedt-ss15/34620-ida-sjostedt-primrose-dress.html)

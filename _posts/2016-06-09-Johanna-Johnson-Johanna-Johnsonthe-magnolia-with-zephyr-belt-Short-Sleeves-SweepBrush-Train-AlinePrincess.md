@@ -9,7 +9,7 @@ tags: [Johanna Johnson ,Johanna Johnson,Aline/Princess ,V-neck,Sweep/Brush Train
 Just **$409.99**
 ###   Short Sleeves Sweep/Brush Train Aline/Princess  
 <table><tr><td>BRANDS</td><td>Johanna Johnson</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>V-neck</td></tr><tr><td>Hemline/Train</td><td>Sweep/Brush Train</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/johanna-johnson-/34964-johanna-johnsonthe-magnolia-with-zephyr-belt.html"><img src="//static.msromantic.com/72298/johanna-johnsonthe-magnolia-with-zephyr-belt.jpg" alt="Johanna Johnsonthe magnolia with zephyr belt" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/johanna-johnson-/34964-johanna-johnsonthe-magnolia-with-zephyr-belt.html"><img src="//static.msromantic.com/72298/johanna-johnsonthe-magnolia-with-zephyr-belt.jpg" alt="Johanna Johnsonthe magnolia with zephyr belt" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/johanna-johnson-/34964-johanna-johnsonthe-magnolia-with-zephyr-belt.html](https://www.readybrides.com/en/johanna-johnson-/34964-johanna-johnsonthe-magnolia-with-zephyr-belt.html)
+Buy it: [https://www.antebrands.com/en/johanna-johnson-/34964-johanna-johnsonthe-magnolia-with-zephyr-belt.html](https://www.antebrands.com/en/johanna-johnson-/34964-johanna-johnsonthe-magnolia-with-zephyr-belt.html)

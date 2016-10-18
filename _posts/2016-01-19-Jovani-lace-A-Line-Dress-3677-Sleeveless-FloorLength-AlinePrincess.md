@@ -9,8 +9,8 @@ tags: [Jovani ,Jovani,Aline/Princess ,Sweetheart,Floor-Length,Sleeveless]
 Just **$386.98**
 ###   Sleeveless Floor-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>Jovani</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/jovani-/39959-jovani-jovani-lace-ball-gown-dress-3677.html"><img src="//static.msromantic.com/86429/jovani-jovani-lace-ball-gown-dress-3677.jpg" alt="Jovani Jovani lace A Line Dress 3677" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-/39959-jovani-jovani-lace-ball-gown-dress-3677.html"><img src="//static.msromantic.com/86429/jovani-jovani-lace-ball-gown-dress-3677.jpg" alt="Jovani Jovani lace A Line Dress 3677" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/jovani-/39959-jovani-jovani-lace-ball-gown-dress-3677.html"><img src="//static.msromantic.com/86430/jovani-jovani-lace-ball-gown-dress-3677.jpg" alt="Jovani Jovani lace A Line Dress 3677" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/jovani-/39959-jovani-jovani-lace-ball-gown-dress-3677.html"><img src="//static.msromantic.com/86428/jovani-jovani-lace-ball-gown-dress-3677.jpg" alt="Jovani Jovani lace A Line Dress 3677" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/jovani-/39959-jovani-jovani-lace-ball-gown-dress-3677.html](https://www.readybrides.com/en/jovani-/39959-jovani-jovani-lace-ball-gown-dress-3677.html)
+<!-- break --><a href="https://www.antebrands.com/en/jovani-/39959-jovani-jovani-lace-ball-gown-dress-3677.html"><img src="//static.msromantic.com/86430/jovani-jovani-lace-ball-gown-dress-3677.jpg" alt="Jovani Jovani lace A Line Dress 3677" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-/39959-jovani-jovani-lace-ball-gown-dress-3677.html"><img src="//static.msromantic.com/86428/jovani-jovani-lace-ball-gown-dress-3677.jpg" alt="Jovani Jovani lace A Line Dress 3677" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/jovani-/39959-jovani-jovani-lace-ball-gown-dress-3677.html](https://www.antebrands.com/en/jovani-/39959-jovani-jovani-lace-ball-gown-dress-3677.html)

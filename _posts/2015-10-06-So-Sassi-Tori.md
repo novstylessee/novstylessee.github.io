@@ -9,7 +9,7 @@ tags: [So Sassi]
 Just **$259.99**
 ### 
 
-<a href="https://www.readybrides.com/en/so-sassi/37052-so-sassi-tori.html"><img src="//static.msromantic.com/77424/so-sassi-tori.jpg" alt="So Sassi Tori" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/so-sassi/37052-so-sassi-tori.html"><img src="//static.msromantic.com/77424/so-sassi-tori.jpg" alt="So Sassi Tori" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/so-sassi/37052-so-sassi-tori.html"><img src="//static.msromantic.com/77423/so-sassi-tori.jpg" alt="So Sassi Tori" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/so-sassi/37052-so-sassi-tori.html](https://www.readybrides.com/en/so-sassi/37052-so-sassi-tori.html)
+<!-- break --><a href="https://www.antebrands.com/en/so-sassi/37052-so-sassi-tori.html"><img src="//static.msromantic.com/77423/so-sassi-tori.jpg" alt="So Sassi Tori" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/so-sassi/37052-so-sassi-tori.html](https://www.antebrands.com/en/so-sassi/37052-so-sassi-tori.html)

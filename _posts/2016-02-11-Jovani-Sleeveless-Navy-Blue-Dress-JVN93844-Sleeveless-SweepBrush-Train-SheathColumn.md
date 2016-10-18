@@ -9,7 +9,7 @@ tags: [Jovani ,Jovani,Sheath/Column,Spaghetti Straps,Sweep/Brush Train,Sleeveles
 Just **$509.98**
 ###   Sleeveless Sweep/Brush Train Sheath/Column 
 <table><tr><td>BRANDS</td><td>Jovani</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Spaghetti Straps</td></tr><tr><td>Hemline/Train</td><td>Sweep/Brush Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/jovani-/38114-jovani-sleeveless-navy-blue-dress-jvn93844.html"><img src="//static.msromantic.com/81483/jovani-sleeveless-navy-blue-dress-jvn93844.jpg" alt="Jovani Sleeveless Navy Blue Dress JVN93844" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-/38114-jovani-sleeveless-navy-blue-dress-jvn93844.html"><img src="//static.msromantic.com/81483/jovani-sleeveless-navy-blue-dress-jvn93844.jpg" alt="Jovani Sleeveless Navy Blue Dress JVN93844" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jovani-/38114-jovani-sleeveless-navy-blue-dress-jvn93844.html](https://www.readybrides.com/en/jovani-/38114-jovani-sleeveless-navy-blue-dress-jvn93844.html)
+Buy it: [https://www.antebrands.com/en/jovani-/38114-jovani-sleeveless-navy-blue-dress-jvn93844.html](https://www.antebrands.com/en/jovani-/38114-jovani-sleeveless-navy-blue-dress-jvn93844.html)

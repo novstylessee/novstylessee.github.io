@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Gem Collection]
 Just **$259.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-gem-collection/36364-jonathan-james-couture-topaz.html"><img src="//static.msromantic.com/75777/jonathan-james-couture-topaz.jpg" alt="Jonathan James Couture Topaz" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-gem-collection/36364-jonathan-james-couture-topaz.html"><img src="//static.msromantic.com/75777/jonathan-james-couture-topaz.jpg" alt="Jonathan James Couture Topaz" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-gem-collection/36364-jonathan-james-couture-topaz.html](https://www.readybrides.com/en/jonathan-james-couture-gem-collection/36364-jonathan-james-couture-topaz.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-gem-collection/36364-jonathan-james-couture-topaz.html](https://www.antebrands.com/en/jonathan-james-couture-gem-collection/36364-jonathan-james-couture-topaz.html)

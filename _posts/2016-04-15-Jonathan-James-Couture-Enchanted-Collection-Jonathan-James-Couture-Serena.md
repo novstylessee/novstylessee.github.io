@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Enchanted Collection]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-enchanted-collection/36310-jonathan-james-couture-serena.html"><img src="//static.msromantic.com/75723/jonathan-james-couture-serena.jpg" alt="Jonathan James Couture Serena" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-enchanted-collection/36310-jonathan-james-couture-serena.html"><img src="//static.msromantic.com/75723/jonathan-james-couture-serena.jpg" alt="Jonathan James Couture Serena" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-enchanted-collection/36310-jonathan-james-couture-serena.html](https://www.readybrides.com/en/jonathan-james-couture-enchanted-collection/36310-jonathan-james-couture-serena.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-enchanted-collection/36310-jonathan-james-couture-serena.html](https://www.antebrands.com/en/jonathan-james-couture-enchanted-collection/36310-jonathan-james-couture-serena.html)

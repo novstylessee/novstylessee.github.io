@@ -9,7 +9,7 @@ tags: [So Sassi]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/so-sassi/37016-so-sassi-carmen.html"><img src="//static.msromantic.com/77345/so-sassi-carmen.jpg" alt="So Sassi Carmen" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/so-sassi/37016-so-sassi-carmen.html"><img src="//static.msromantic.com/77345/so-sassi-carmen.jpg" alt="So Sassi Carmen" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/so-sassi/37016-so-sassi-carmen.html](https://www.readybrides.com/en/so-sassi/37016-so-sassi-carmen.html)
+Buy it: [https://www.antebrands.com/en/so-sassi/37016-so-sassi-carmen.html](https://www.antebrands.com/en/so-sassi/37016-so-sassi-carmen.html)

@@ -9,7 +9,7 @@ tags: [Ivy & Aster ,Ivy & Aster,Aline/Princess ,Spaghetti Straps,Chapel Train,Sl
 Just **$299.99**
 ###   Sleeveless Chapel Train Aline/Princess  
 <table><tr><td>BRANDS</td><td>Ivy & Aster</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Spaghetti Straps</td></tr><tr><td>Hemline/Train</td><td>Chapel Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/ivy-aster-/34823-ivy-aster-artist-s-muse.html"><img src="//static.msromantic.com/72121/ivy-aster-artist-s-muse.jpg" alt="Ivy & Aster Artist's Muse" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ivy-aster-/34823-ivy-aster-artist-s-muse.html"><img src="//static.msromantic.com/72121/ivy-aster-artist-s-muse.jpg" alt="Ivy & Aster Artist's Muse" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/ivy-aster-/34823-ivy-aster-artist-s-muse.html](https://www.readybrides.com/en/ivy-aster-/34823-ivy-aster-artist-s-muse.html)
+Buy it: [https://www.antebrands.com/en/ivy-aster-/34823-ivy-aster-artist-s-muse.html](https://www.antebrands.com/en/ivy-aster-/34823-ivy-aster-artist-s-muse.html)

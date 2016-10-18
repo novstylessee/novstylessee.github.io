@@ -9,7 +9,7 @@ tags: [Jovani Pageant Dresses]
 Just **$379.99**
 ###      
 <table><tr><td>BRANDS</td><td>Jovani Pageant Dresses</td></tr></table>
-<a href="https://www.readybrides.com/en/jovani-pageant-dresses/40455-sweetheart-neck-fuchsia-pageant-dress-22214.html"><img src="//static.msromantic.com/88086/sweetheart-neck-fuchsia-pageant-dress-22214.jpg" alt="Sweetheart Neck Fuchsia Pageant Dress 22214" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-pageant-dresses/40455-sweetheart-neck-fuchsia-pageant-dress-22214.html"><img src="//static.msromantic.com/88086/sweetheart-neck-fuchsia-pageant-dress-22214.jpg" alt="Sweetheart Neck Fuchsia Pageant Dress 22214" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jovani-pageant-dresses/40455-sweetheart-neck-fuchsia-pageant-dress-22214.html](https://www.readybrides.com/en/jovani-pageant-dresses/40455-sweetheart-neck-fuchsia-pageant-dress-22214.html)
+Buy it: [https://www.antebrands.com/en/jovani-pageant-dresses/40455-sweetheart-neck-fuchsia-pageant-dress-22214.html](https://www.antebrands.com/en/jovani-pageant-dresses/40455-sweetheart-neck-fuchsia-pageant-dress-22214.html)

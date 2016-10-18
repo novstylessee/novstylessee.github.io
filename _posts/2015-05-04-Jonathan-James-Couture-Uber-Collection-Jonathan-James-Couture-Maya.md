@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Uber Collection]
 Just **$429.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-uber-collection/36430-jonathan-james-couture-maya.html"><img src="//static.msromantic.com/75843/jonathan-james-couture-maya.jpg" alt="Jonathan James Couture Maya" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-uber-collection/36430-jonathan-james-couture-maya.html"><img src="//static.msromantic.com/75843/jonathan-james-couture-maya.jpg" alt="Jonathan James Couture Maya" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-uber-collection/36430-jonathan-james-couture-maya.html](https://www.readybrides.com/en/jonathan-james-couture-uber-collection/36430-jonathan-james-couture-maya.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-uber-collection/36430-jonathan-james-couture-maya.html](https://www.antebrands.com/en/jonathan-james-couture-uber-collection/36430-jonathan-james-couture-maya.html)

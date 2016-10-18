@@ -9,7 +9,7 @@ tags: [Halfpenny London]
 Just **$449.99**
 ### 
 
-<a href="https://www.readybrides.com/en/halfpenny-london/36741-halfpenny-london-vintage-janna-dress-over-silk-slip.html"><img src="//static.msromantic.com/76397/halfpenny-london-vintage-janna-dress-over-silk-slip.jpg" alt="Halfpenny London Vintage Janna dress over silk slip" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/halfpenny-london/36741-halfpenny-london-vintage-janna-dress-over-silk-slip.html"><img src="//static.msromantic.com/76397/halfpenny-london-vintage-janna-dress-over-silk-slip.jpg" alt="Halfpenny London Vintage Janna dress over silk slip" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/halfpenny-london/36741-halfpenny-london-vintage-janna-dress-over-silk-slip.html"><img src="//static.msromantic.com/76396/halfpenny-london-vintage-janna-dress-over-silk-slip.jpg" alt="Halfpenny London Vintage Janna dress over silk slip" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/halfpenny-london/36741-halfpenny-london-vintage-janna-dress-over-silk-slip.html](https://www.readybrides.com/en/halfpenny-london/36741-halfpenny-london-vintage-janna-dress-over-silk-slip.html)
+<!-- break --><a href="https://www.antebrands.com/en/halfpenny-london/36741-halfpenny-london-vintage-janna-dress-over-silk-slip.html"><img src="//static.msromantic.com/76396/halfpenny-london-vintage-janna-dress-over-silk-slip.jpg" alt="Halfpenny London Vintage Janna dress over silk slip" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/halfpenny-london/36741-halfpenny-london-vintage-janna-dress-over-silk-slip.html](https://www.antebrands.com/en/halfpenny-london/36741-halfpenny-london-vintage-janna-dress-over-silk-slip.html)

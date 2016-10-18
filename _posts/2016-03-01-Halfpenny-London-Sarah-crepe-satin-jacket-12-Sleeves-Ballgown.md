@@ -9,7 +9,7 @@ tags: [Halfpenny London,Ballgown,1/2 Sleeves]
 Just **$439.99**
 ###   1/2 Sleeves  Ballgown 
 <table><tr><td>BRANDS</td><td>Halfpenny London</td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Sleeve</td><td>1/2 Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/halfpenny-london/36732-halfpenny-london-sarah-crepe-satin-jacket.html"><img src="//static.msromantic.com/76384/halfpenny-london-sarah-crepe-satin-jacket.jpg" alt="Halfpenny London Sarah crepe satin jacket" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/halfpenny-london/36732-halfpenny-london-sarah-crepe-satin-jacket.html"><img src="//static.msromantic.com/76384/halfpenny-london-sarah-crepe-satin-jacket.jpg" alt="Halfpenny London Sarah crepe satin jacket" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/halfpenny-london/36732-halfpenny-london-sarah-crepe-satin-jacket.html](https://www.readybrides.com/en/halfpenny-london/36732-halfpenny-london-sarah-crepe-satin-jacket.html)
+Buy it: [https://www.antebrands.com/en/halfpenny-london/36732-halfpenny-london-sarah-crepe-satin-jacket.html](https://www.antebrands.com/en/halfpenny-london/36732-halfpenny-london-sarah-crepe-satin-jacket.html)

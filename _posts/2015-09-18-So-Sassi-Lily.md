@@ -9,7 +9,7 @@ tags: [So Sassi]
 Just **$239.99**
 ### 
 
-<a href="https://www.readybrides.com/en/so-sassi/37034-so-sassi-lily.html"><img src="//static.msromantic.com/77384/so-sassi-lily.jpg" alt="So Sassi Lily" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/so-sassi/37034-so-sassi-lily.html"><img src="//static.msromantic.com/77384/so-sassi-lily.jpg" alt="So Sassi Lily" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/so-sassi/37034-so-sassi-lily.html"><img src="//static.msromantic.com/77383/so-sassi-lily.jpg" alt="So Sassi Lily" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/so-sassi/37034-so-sassi-lily.html](https://www.readybrides.com/en/so-sassi/37034-so-sassi-lily.html)
+<!-- break --><a href="https://www.antebrands.com/en/so-sassi/37034-so-sassi-lily.html"><img src="//static.msromantic.com/77383/so-sassi-lily.jpg" alt="So Sassi Lily" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/so-sassi/37034-so-sassi-lily.html](https://www.antebrands.com/en/so-sassi/37034-so-sassi-lily.html)

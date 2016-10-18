@@ -9,7 +9,7 @@ tags: [Creazioni Elena ,Creazioni Elena,Aline/Princess ,Illusion,Chapel Train,Sl
 Just **$449.99**
 ###   Sleeveless Chapel Train Aline/Princess  
 <table><tr><td>BRANDS</td><td>Creazioni Elena</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Illusion</td></tr><tr><td>Hemline/Train</td><td>Chapel Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/creazioni-elena-/36474-creazioni-elena-1678.html"><img src="//static.msromantic.com/75929/creazioni-elena-1678.jpg" alt="Creazioni Elena 1678" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/creazioni-elena-/36474-creazioni-elena-1678.html"><img src="//static.msromantic.com/75929/creazioni-elena-1678.jpg" alt="Creazioni Elena 1678" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/creazioni-elena-/36474-creazioni-elena-1678.html"><img src="//static.msromantic.com/75928/creazioni-elena-1678.jpg" alt="Creazioni Elena 1678" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/creazioni-elena-/36474-creazioni-elena-1678.html](https://www.readybrides.com/en/creazioni-elena-/36474-creazioni-elena-1678.html)
+<!-- break --><a href="https://www.antebrands.com/en/creazioni-elena-/36474-creazioni-elena-1678.html"><img src="//static.msromantic.com/75928/creazioni-elena-1678.jpg" alt="Creazioni Elena 1678" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/creazioni-elena-/36474-creazioni-elena-1678.html](https://www.antebrands.com/en/creazioni-elena-/36474-creazioni-elena-1678.html)

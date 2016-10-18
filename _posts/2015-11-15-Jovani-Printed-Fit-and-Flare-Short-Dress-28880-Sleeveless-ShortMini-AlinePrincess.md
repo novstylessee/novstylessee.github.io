@@ -9,8 +9,8 @@ tags: [Jovani ,Jovani,Aline/Princess ,Sweetheart,Short/Mini,Sleeveless]
 Just **$394.98**
 ###   Sleeveless Short/Mini Aline/Princess  
 <table><tr><td>BRANDS</td><td>Jovani</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/jovani-/40361-jovani-printed-fit-and-flare-short-dress-28880.html"><img src="//static.msromantic.com/87804/jovani-printed-fit-and-flare-short-dress-28880.jpg" alt="Jovani Printed Fit and Flare Short Dress 28880" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-/40361-jovani-printed-fit-and-flare-short-dress-28880.html"><img src="//static.msromantic.com/87804/jovani-printed-fit-and-flare-short-dress-28880.jpg" alt="Jovani Printed Fit and Flare Short Dress 28880" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/jovani-/40361-jovani-printed-fit-and-flare-short-dress-28880.html"><img src="//static.msromantic.com/87805/jovani-printed-fit-and-flare-short-dress-28880.jpg" alt="Jovani Printed Fit and Flare Short Dress 28880" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/jovani-/40361-jovani-printed-fit-and-flare-short-dress-28880.html"><img src="//static.msromantic.com/87803/jovani-printed-fit-and-flare-short-dress-28880.jpg" alt="Jovani Printed Fit and Flare Short Dress 28880" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/jovani-/40361-jovani-printed-fit-and-flare-short-dress-28880.html](https://www.readybrides.com/en/jovani-/40361-jovani-printed-fit-and-flare-short-dress-28880.html)
+<!-- break --><a href="https://www.antebrands.com/en/jovani-/40361-jovani-printed-fit-and-flare-short-dress-28880.html"><img src="//static.msromantic.com/87805/jovani-printed-fit-and-flare-short-dress-28880.jpg" alt="Jovani Printed Fit and Flare Short Dress 28880" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-/40361-jovani-printed-fit-and-flare-short-dress-28880.html"><img src="//static.msromantic.com/87803/jovani-printed-fit-and-flare-short-dress-28880.jpg" alt="Jovani Printed Fit and Flare Short Dress 28880" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/jovani-/40361-jovani-printed-fit-and-flare-short-dress-28880.html](https://www.antebrands.com/en/jovani-/40361-jovani-printed-fit-and-flare-short-dress-28880.html)

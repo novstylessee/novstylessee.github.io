@@ -9,7 +9,7 @@ tags: [Jorge Manuel ,Jorge Manuel,Sheath/Column,V-neck,Court Train,Sleeveless]
 Just **$329.99**
 ###   Sleeveless Court Train Sheath/Column 
 <table><tr><td>BRANDS</td><td>Jorge Manuel</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>V-neck</td></tr><tr><td>Hemline/Train</td><td>Court Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/jorge-manuel-/35749-jorge-manuel-the-andean.html"><img src="//static.msromantic.com/74995/jorge-manuel-the-andean.jpg" alt="Jorge Manuel THE ANDEAN" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jorge-manuel-/35749-jorge-manuel-the-andean.html"><img src="//static.msromantic.com/74995/jorge-manuel-the-andean.jpg" alt="Jorge Manuel THE ANDEAN" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/jorge-manuel-/35749-jorge-manuel-the-andean.html"><img src="//static.msromantic.com/74994/jorge-manuel-the-andean.jpg" alt="Jorge Manuel THE ANDEAN" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/jorge-manuel-/35749-jorge-manuel-the-andean.html](https://www.readybrides.com/en/jorge-manuel-/35749-jorge-manuel-the-andean.html)
+<!-- break --><a href="https://www.antebrands.com/en/jorge-manuel-/35749-jorge-manuel-the-andean.html"><img src="//static.msromantic.com/74994/jorge-manuel-the-andean.jpg" alt="Jorge Manuel THE ANDEAN" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/jorge-manuel-/35749-jorge-manuel-the-andean.html](https://www.antebrands.com/en/jorge-manuel-/35749-jorge-manuel-the-andean.html)

@@ -9,8 +9,8 @@ tags: [Jovani ,Jovani,Mermaid/Trumpet,Bateau,Court Train,3/4 Sleeves]
 Just **$482.98**
 ###   3/4 Sleeves Court Train Mermaid/Trumpet 
 <table><tr><td>BRANDS</td><td>Jovani</td></tr><tr><td>Silhouette</td><td>Mermaid/Trumpet</td></tr><tr><td>Neckline</td><td>Bateau</td></tr><tr><td>Hemline/Train</td><td>Court Train</td></tr><tr><td>Sleeve</td><td>3/4 Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/jovani-/39501-jovani-black-sleeveless-jersey-prom-dress-93137.html"><img src="//static.msromantic.com/85105/jovani-black-sleeveless-jersey-prom-dress-93137.jpg" alt="Jovani Black Sleeveless Jersey Prom Dress 93137" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-/39501-jovani-black-sleeveless-jersey-prom-dress-93137.html"><img src="//static.msromantic.com/85105/jovani-black-sleeveless-jersey-prom-dress-93137.jpg" alt="Jovani Black Sleeveless Jersey Prom Dress 93137" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/jovani-/39501-jovani-black-sleeveless-jersey-prom-dress-93137.html"><img src="//static.msromantic.com/85106/jovani-black-sleeveless-jersey-prom-dress-93137.jpg" alt="Jovani Black Sleeveless Jersey Prom Dress 93137" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/jovani-/39501-jovani-black-sleeveless-jersey-prom-dress-93137.html"><img src="//static.msromantic.com/85104/jovani-black-sleeveless-jersey-prom-dress-93137.jpg" alt="Jovani Black Sleeveless Jersey Prom Dress 93137" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/jovani-/39501-jovani-black-sleeveless-jersey-prom-dress-93137.html](https://www.readybrides.com/en/jovani-/39501-jovani-black-sleeveless-jersey-prom-dress-93137.html)
+<!-- break --><a href="https://www.antebrands.com/en/jovani-/39501-jovani-black-sleeveless-jersey-prom-dress-93137.html"><img src="//static.msromantic.com/85106/jovani-black-sleeveless-jersey-prom-dress-93137.jpg" alt="Jovani Black Sleeveless Jersey Prom Dress 93137" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-/39501-jovani-black-sleeveless-jersey-prom-dress-93137.html"><img src="//static.msromantic.com/85104/jovani-black-sleeveless-jersey-prom-dress-93137.jpg" alt="Jovani Black Sleeveless Jersey Prom Dress 93137" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/jovani-/39501-jovani-black-sleeveless-jersey-prom-dress-93137.html](https://www.antebrands.com/en/jovani-/39501-jovani-black-sleeveless-jersey-prom-dress-93137.html)

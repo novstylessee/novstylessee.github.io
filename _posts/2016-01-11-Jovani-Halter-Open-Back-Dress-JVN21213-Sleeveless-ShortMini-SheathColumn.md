@@ -9,8 +9,8 @@ tags: [Jovani ,Jovani,Sheath/Column,Halter,Short/Mini,Sleeveless]
 Just **$458.98**
 ###   Sleeveless Short/Mini Sheath/Column 
 <table><tr><td>BRANDS</td><td>Jovani</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Halter</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/jovani-/38550-jovani-halter-open-back-dress-jvn21213.html"><img src="//static.msromantic.com/82574/jovani-halter-open-back-dress-jvn21213.jpg" alt="Jovani Halter Open Back Dress JVN21213" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-/38550-jovani-halter-open-back-dress-jvn21213.html"><img src="//static.msromantic.com/82574/jovani-halter-open-back-dress-jvn21213.jpg" alt="Jovani Halter Open Back Dress JVN21213" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/jovani-/38550-jovani-halter-open-back-dress-jvn21213.html"><img src="//static.msromantic.com/82575/jovani-halter-open-back-dress-jvn21213.jpg" alt="Jovani Halter Open Back Dress JVN21213" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/jovani-/38550-jovani-halter-open-back-dress-jvn21213.html"><img src="//static.msromantic.com/82573/jovani-halter-open-back-dress-jvn21213.jpg" alt="Jovani Halter Open Back Dress JVN21213" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/jovani-/38550-jovani-halter-open-back-dress-jvn21213.html](https://www.readybrides.com/en/jovani-/38550-jovani-halter-open-back-dress-jvn21213.html)
+<!-- break --><a href="https://www.antebrands.com/en/jovani-/38550-jovani-halter-open-back-dress-jvn21213.html"><img src="//static.msromantic.com/82575/jovani-halter-open-back-dress-jvn21213.jpg" alt="Jovani Halter Open Back Dress JVN21213" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-/38550-jovani-halter-open-back-dress-jvn21213.html"><img src="//static.msromantic.com/82573/jovani-halter-open-back-dress-jvn21213.jpg" alt="Jovani Halter Open Back Dress JVN21213" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/jovani-/38550-jovani-halter-open-back-dress-jvn21213.html](https://www.antebrands.com/en/jovani-/38550-jovani-halter-open-back-dress-jvn21213.html)

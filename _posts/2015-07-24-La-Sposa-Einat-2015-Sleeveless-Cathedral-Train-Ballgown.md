@@ -9,8 +9,8 @@ tags: [La Sposa ,La Sposa,Ballgown,Strapless,Cathedral Train,Sleeveless,2015]
 Just **$399.99**
 ### 2015  Sleeveless Cathedral Train Ballgown 
 <table><tr><td>BRANDS</td><td>La Sposa</td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Neckline</td><td>Strapless</td></tr><tr><td>Hemline/Train</td><td>Cathedral Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr><tr><td>Years</td><td>2015</td></tr></table>
-<a href="https://www.readybrides.com/en/la-sposa-/42582-la-sposa-einat.html"><img src="//static.msromantic.com/93367/la-sposa-einat.jpg" alt="La Sposa Einat" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/la-sposa-/42582-la-sposa-einat.html"><img src="//static.msromantic.com/93367/la-sposa-einat.jpg" alt="La Sposa Einat" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/la-sposa-/42582-la-sposa-einat.html"><img src="//static.msromantic.com/93370/la-sposa-einat.jpg" alt="La Sposa Einat" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/la-sposa-/42582-la-sposa-einat.html"><img src="//static.msromantic.com/93366/la-sposa-einat.jpg" alt="La Sposa Einat" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/la-sposa-/42582-la-sposa-einat.html](https://www.readybrides.com/en/la-sposa-/42582-la-sposa-einat.html)
+<!-- break --><a href="https://www.antebrands.com/en/la-sposa-/42582-la-sposa-einat.html"><img src="//static.msromantic.com/93370/la-sposa-einat.jpg" alt="La Sposa Einat" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/la-sposa-/42582-la-sposa-einat.html"><img src="//static.msromantic.com/93366/la-sposa-einat.jpg" alt="La Sposa Einat" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/la-sposa-/42582-la-sposa-einat.html](https://www.antebrands.com/en/la-sposa-/42582-la-sposa-einat.html)

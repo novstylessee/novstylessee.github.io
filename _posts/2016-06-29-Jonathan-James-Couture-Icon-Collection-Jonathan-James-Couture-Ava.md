@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Icon Collection]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36385-jonathan-james-couture-ava.html"><img src="//static.msromantic.com/75798/jonathan-james-couture-ava.jpg" alt="Jonathan James Couture Ava" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36385-jonathan-james-couture-ava.html"><img src="//static.msromantic.com/75798/jonathan-james-couture-ava.jpg" alt="Jonathan James Couture Ava" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36385-jonathan-james-couture-ava.html](https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36385-jonathan-james-couture-ava.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36385-jonathan-james-couture-ava.html](https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36385-jonathan-james-couture-ava.html)

@@ -9,7 +9,7 @@ tags: [Johanna Johnson ,Johanna Johnson,Sheath/Column,Spaghetti Straps,Sleeveles
 Just **$309.99**
 ###   Sleeveless  Sheath/Column 
 <table><tr><td>BRANDS</td><td>Johanna Johnson</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Spaghetti Straps</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/johanna-johnson-/34950-johanna-johnsonthe-lenox.html"><img src="//static.msromantic.com/72284/johanna-johnsonthe-lenox.jpg" alt="Johanna Johnsonthe lenox" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/johanna-johnson-/34950-johanna-johnsonthe-lenox.html"><img src="//static.msromantic.com/72284/johanna-johnsonthe-lenox.jpg" alt="Johanna Johnsonthe lenox" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/johanna-johnson-/34950-johanna-johnsonthe-lenox.html](https://www.readybrides.com/en/johanna-johnson-/34950-johanna-johnsonthe-lenox.html)
+Buy it: [https://www.antebrands.com/en/johanna-johnson-/34950-johanna-johnsonthe-lenox.html](https://www.antebrands.com/en/johanna-johnson-/34950-johanna-johnsonthe-lenox.html)

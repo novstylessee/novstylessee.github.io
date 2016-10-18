@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Gem Collection]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-gem-collection/36358-jonathan-james-couture-peridot.html"><img src="//static.msromantic.com/75866/jonathan-james-couture-peridot.jpg" alt="Jonathan James Couture Peridot" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-gem-collection/36358-jonathan-james-couture-peridot.html"><img src="//static.msromantic.com/75866/jonathan-james-couture-peridot.jpg" alt="Jonathan James Couture Peridot" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-gem-collection/36358-jonathan-james-couture-peridot.html](https://www.readybrides.com/en/jonathan-james-couture-gem-collection/36358-jonathan-james-couture-peridot.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-gem-collection/36358-jonathan-james-couture-peridot.html](https://www.antebrands.com/en/jonathan-james-couture-gem-collection/36358-jonathan-james-couture-peridot.html)

@@ -9,9 +9,9 @@ tags: [Jovani ,Jovani,Sheath/Column,Off The Shoulder,Short/Mini,Sleeveless]
 Just **$649.99**
 ###   Sleeveless Short/Mini Sheath/Column 
 <table><tr><td>BRANDS</td><td>Jovani</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Off The Shoulder</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/jovani-/40120-jovani-two-pieces-beaded-short-dress-27665.html"><img src="//static.msromantic.com/87001/jovani-two-pieces-beaded-short-dress-27665.jpg" alt="Jovani Two Pieces Beaded Short Dress 27665" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-/40120-jovani-two-pieces-beaded-short-dress-27665.html"><img src="//static.msromantic.com/87001/jovani-two-pieces-beaded-short-dress-27665.jpg" alt="Jovani Two Pieces Beaded Short Dress 27665" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/jovani-/40120-jovani-two-pieces-beaded-short-dress-27665.html"><img src="//static.msromantic.com/87002/jovani-two-pieces-beaded-short-dress-27665.jpg" alt="Jovani Two Pieces Beaded Short Dress 27665" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/jovani-/40120-jovani-two-pieces-beaded-short-dress-27665.html"><img src="//static.msromantic.com/87003/jovani-two-pieces-beaded-short-dress-27665.jpg" alt="Jovani Two Pieces Beaded Short Dress 27665" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/jovani-/40120-jovani-two-pieces-beaded-short-dress-27665.html"><img src="//static.msromantic.com/87000/jovani-two-pieces-beaded-short-dress-27665.jpg" alt="Jovani Two Pieces Beaded Short Dress 27665" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/jovani-/40120-jovani-two-pieces-beaded-short-dress-27665.html](https://www.readybrides.com/en/jovani-/40120-jovani-two-pieces-beaded-short-dress-27665.html)
+<!-- break --><a href="https://www.antebrands.com/en/jovani-/40120-jovani-two-pieces-beaded-short-dress-27665.html"><img src="//static.msromantic.com/87002/jovani-two-pieces-beaded-short-dress-27665.jpg" alt="Jovani Two Pieces Beaded Short Dress 27665" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-/40120-jovani-two-pieces-beaded-short-dress-27665.html"><img src="//static.msromantic.com/87003/jovani-two-pieces-beaded-short-dress-27665.jpg" alt="Jovani Two Pieces Beaded Short Dress 27665" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-/40120-jovani-two-pieces-beaded-short-dress-27665.html"><img src="//static.msromantic.com/87000/jovani-two-pieces-beaded-short-dress-27665.jpg" alt="Jovani Two Pieces Beaded Short Dress 27665" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/jovani-/40120-jovani-two-pieces-beaded-short-dress-27665.html](https://www.antebrands.com/en/jovani-/40120-jovani-two-pieces-beaded-short-dress-27665.html)

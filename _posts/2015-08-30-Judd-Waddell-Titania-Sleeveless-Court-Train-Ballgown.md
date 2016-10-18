@@ -9,7 +9,7 @@ tags: [Judd Waddell ,Judd Waddell,Ballgown,Illusion,Court Train,Sleeveless]
 Just **$319.99**
 ###   Sleeveless Court Train Ballgown 
 <table><tr><td>BRANDS</td><td>Judd Waddell</td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Neckline</td><td>Illusion</td></tr><tr><td>Hemline/Train</td><td>Court Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/judd-waddell-/41218-judd-waddell-titania.html"><img src="//static.msromantic.com/89721/judd-waddell-titania.jpg" alt="Judd Waddell Titania" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/judd-waddell-/41218-judd-waddell-titania.html"><img src="//static.msromantic.com/89721/judd-waddell-titania.jpg" alt="Judd Waddell Titania" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/judd-waddell-/41218-judd-waddell-titania.html](https://www.readybrides.com/en/judd-waddell-/41218-judd-waddell-titania.html)
+Buy it: [https://www.antebrands.com/en/judd-waddell-/41218-judd-waddell-titania.html](https://www.antebrands.com/en/judd-waddell-/41218-judd-waddell-titania.html)

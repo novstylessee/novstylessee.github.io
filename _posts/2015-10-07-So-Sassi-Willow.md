@@ -9,7 +9,7 @@ tags: [So Sassi]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/so-sassi/37053-so-sassi-willow.html"><img src="//static.msromantic.com/77426/so-sassi-willow.jpg" alt="So Sassi Willow" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/so-sassi/37053-so-sassi-willow.html"><img src="//static.msromantic.com/77426/so-sassi-willow.jpg" alt="So Sassi Willow" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/so-sassi/37053-so-sassi-willow.html"><img src="//static.msromantic.com/77425/so-sassi-willow.jpg" alt="So Sassi Willow" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/so-sassi/37053-so-sassi-willow.html](https://www.readybrides.com/en/so-sassi/37053-so-sassi-willow.html)
+<!-- break --><a href="https://www.antebrands.com/en/so-sassi/37053-so-sassi-willow.html"><img src="//static.msromantic.com/77425/so-sassi-willow.jpg" alt="So Sassi Willow" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/so-sassi/37053-so-sassi-willow.html](https://www.antebrands.com/en/so-sassi/37053-so-sassi-willow.html)

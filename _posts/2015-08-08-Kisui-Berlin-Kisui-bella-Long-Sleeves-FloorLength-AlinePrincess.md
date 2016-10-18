@@ -9,7 +9,7 @@ tags: [Kisui Berlin,Kusui Berlin,Aline/Princess ,Illusion,Jewel,Floor-Length,Lon
 Just **$359.64**
 ###   Long Sleeves Floor-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>Kusui Berlin</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Illusion,Jewel</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Long Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/kisui-berlin/36526-kisui-bella.html"><img src="//static.msromantic.com/76033/kisui-bella.jpg" alt="Kisui bella" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kisui-berlin/36526-kisui-bella.html"><img src="//static.msromantic.com/76033/kisui-bella.jpg" alt="Kisui bella" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/kisui-berlin/36526-kisui-bella.html"><img src="//static.msromantic.com/76032/kisui-bella.jpg" alt="Kisui bella" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/kisui-berlin/36526-kisui-bella.html](https://www.readybrides.com/en/kisui-berlin/36526-kisui-bella.html)
+<!-- break --><a href="https://www.antebrands.com/en/kisui-berlin/36526-kisui-bella.html"><img src="//static.msromantic.com/76032/kisui-bella.jpg" alt="Kisui bella" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/kisui-berlin/36526-kisui-bella.html](https://www.antebrands.com/en/kisui-berlin/36526-kisui-bella.html)

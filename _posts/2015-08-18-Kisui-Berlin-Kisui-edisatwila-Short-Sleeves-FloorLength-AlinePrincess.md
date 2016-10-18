@@ -9,7 +9,7 @@ tags: [Kisui Berlin,Kusui Berlin,Aline/Princess ,Illusion,Bateau,Floor-Length,Sh
 Just **$329.67**
 ###   Short Sleeves Floor-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>Kusui Berlin</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Illusion,Bateau</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/kisui-berlin/36536-kisui-edisa-twila.html"><img src="//static.msromantic.com/76053/kisui-edisa-twila.jpg" alt="Kisui edisa-twila" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kisui-berlin/36536-kisui-edisa-twila.html"><img src="//static.msromantic.com/76053/kisui-edisa-twila.jpg" alt="Kisui edisa-twila" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/kisui-berlin/36536-kisui-edisa-twila.html"><img src="//static.msromantic.com/76052/kisui-edisa-twila.jpg" alt="Kisui edisa-twila" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/kisui-berlin/36536-kisui-edisa-twila.html](https://www.readybrides.com/en/kisui-berlin/36536-kisui-edisa-twila.html)
+<!-- break --><a href="https://www.antebrands.com/en/kisui-berlin/36536-kisui-edisa-twila.html"><img src="//static.msromantic.com/76052/kisui-edisa-twila.jpg" alt="Kisui edisa-twila" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/kisui-berlin/36536-kisui-edisa-twila.html](https://www.antebrands.com/en/kisui-berlin/36536-kisui-edisa-twila.html)

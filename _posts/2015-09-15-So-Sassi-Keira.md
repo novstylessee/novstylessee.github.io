@@ -9,7 +9,7 @@ tags: [So Sassi]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/so-sassi/37031-so-sassi-keira.html"><img src="//static.msromantic.com/77378/so-sassi-keira.jpg" alt="So Sassi Keira" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/so-sassi/37031-so-sassi-keira.html"><img src="//static.msromantic.com/77378/so-sassi-keira.jpg" alt="So Sassi Keira" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/so-sassi/37031-so-sassi-keira.html"><img src="//static.msromantic.com/77377/so-sassi-keira.jpg" alt="So Sassi Keira" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/so-sassi/37031-so-sassi-keira.html](https://www.readybrides.com/en/so-sassi/37031-so-sassi-keira.html)
+<!-- break --><a href="https://www.antebrands.com/en/so-sassi/37031-so-sassi-keira.html"><img src="//static.msromantic.com/77377/so-sassi-keira.jpg" alt="So Sassi Keira" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/so-sassi/37031-so-sassi-keira.html](https://www.antebrands.com/en/so-sassi/37031-so-sassi-keira.html)

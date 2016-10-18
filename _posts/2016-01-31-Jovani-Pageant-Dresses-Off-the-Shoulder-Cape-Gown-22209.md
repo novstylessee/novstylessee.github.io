@@ -9,7 +9,7 @@ tags: [Jovani Pageant Dresses]
 Just **$359.99**
 ###      
 <table><tr><td>BRANDS</td><td>Jovani Pageant Dresses</td></tr></table>
-<a href="https://www.readybrides.com/en/jovani-pageant-dresses/40438-off-the-shoulder-cape-gown-22209.html"><img src="//static.msromantic.com/88069/off-the-shoulder-cape-gown-22209.jpg" alt="Off the Shoulder Cape Gown 22209" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-pageant-dresses/40438-off-the-shoulder-cape-gown-22209.html"><img src="//static.msromantic.com/88069/off-the-shoulder-cape-gown-22209.jpg" alt="Off the Shoulder Cape Gown 22209" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jovani-pageant-dresses/40438-off-the-shoulder-cape-gown-22209.html](https://www.readybrides.com/en/jovani-pageant-dresses/40438-off-the-shoulder-cape-gown-22209.html)
+Buy it: [https://www.antebrands.com/en/jovani-pageant-dresses/40438-off-the-shoulder-cape-gown-22209.html](https://www.antebrands.com/en/jovani-pageant-dresses/40438-off-the-shoulder-cape-gown-22209.html)

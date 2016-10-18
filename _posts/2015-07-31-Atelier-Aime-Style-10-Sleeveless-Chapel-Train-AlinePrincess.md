@@ -9,7 +9,7 @@ tags: [Atelier Aimée,Aline/Princess ,Sweetheart,Chapel Train,Sleeveless]
 Just **$529.99**
 ###   Sleeveless Chapel Train Aline/Princess  
 <table><tr><td>BRANDS</td><td>Atelier Aimée</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Chapel Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/atelier-aimee/40721-atelier-aimee-style-10.html"><img src="//static.msromantic.com/89060/atelier-aimee-style-10.jpg" alt="Atelier Aimée Style 10" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/atelier-aimee/40721-atelier-aimee-style-10.html"><img src="//static.msromantic.com/89060/atelier-aimee-style-10.jpg" alt="Atelier Aimée Style 10" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/atelier-aimee/40721-atelier-aimee-style-10.html](https://www.readybrides.com/en/atelier-aimee/40721-atelier-aimee-style-10.html)
+Buy it: [https://www.antebrands.com/en/atelier-aimee/40721-atelier-aimee-style-10.html](https://www.antebrands.com/en/atelier-aimee/40721-atelier-aimee-style-10.html)

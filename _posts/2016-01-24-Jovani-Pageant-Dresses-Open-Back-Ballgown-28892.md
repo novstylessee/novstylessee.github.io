@@ -9,7 +9,7 @@ tags: [Jovani Pageant Dresses]
 Just **$349.99**
 ###      
 <table><tr><td>BRANDS</td><td>Jovani Pageant Dresses</td></tr></table>
-<a href="https://www.readybrides.com/en/jovani-pageant-dresses/40431-open-back-ballgown-28892.html"><img src="//static.msromantic.com/88062/open-back-ballgown-28892.jpg" alt="Open Back Ballgown 28892" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-pageant-dresses/40431-open-back-ballgown-28892.html"><img src="//static.msromantic.com/88062/open-back-ballgown-28892.jpg" alt="Open Back Ballgown 28892" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jovani-pageant-dresses/40431-open-back-ballgown-28892.html](https://www.readybrides.com/en/jovani-pageant-dresses/40431-open-back-ballgown-28892.html)
+Buy it: [https://www.antebrands.com/en/jovani-pageant-dresses/40431-open-back-ballgown-28892.html](https://www.antebrands.com/en/jovani-pageant-dresses/40431-open-back-ballgown-28892.html)

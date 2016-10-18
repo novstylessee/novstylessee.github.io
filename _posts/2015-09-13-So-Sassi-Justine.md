@@ -9,7 +9,7 @@ tags: [So Sassi]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/so-sassi/37029-so-sassi-justine.html"><img src="//static.msromantic.com/77374/so-sassi-justine.jpg" alt="So Sassi Justine" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/so-sassi/37029-so-sassi-justine.html"><img src="//static.msromantic.com/77374/so-sassi-justine.jpg" alt="So Sassi Justine" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/so-sassi/37029-so-sassi-justine.html"><img src="//static.msromantic.com/77373/so-sassi-justine.jpg" alt="So Sassi Justine" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/so-sassi/37029-so-sassi-justine.html](https://www.readybrides.com/en/so-sassi/37029-so-sassi-justine.html)
+<!-- break --><a href="https://www.antebrands.com/en/so-sassi/37029-so-sassi-justine.html"><img src="//static.msromantic.com/77373/so-sassi-justine.jpg" alt="So Sassi Justine" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/so-sassi/37029-so-sassi-justine.html](https://www.antebrands.com/en/so-sassi/37029-so-sassi-justine.html)

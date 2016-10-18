@@ -9,8 +9,8 @@ tags: [Jovani Pageant Dresses]
 Just **$999.99**
 ###      
 <table><tr><td>BRANDS</td><td>Jovani Pageant Dresses</td></tr></table>
-<a href="https://www.readybrides.com/en/jovani-pageant-dresses/40477-crystal-embellished-gown-24766.html"><img src="//static.msromantic.com/88164/crystal-embellished-gown-24766.jpg" alt="Crystal Embellished Gown 24766" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-pageant-dresses/40477-crystal-embellished-gown-24766.html"><img src="//static.msromantic.com/88164/crystal-embellished-gown-24766.jpg" alt="Crystal Embellished Gown 24766" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/jovani-pageant-dresses/40477-crystal-embellished-gown-24766.html"><img src="//static.msromantic.com/88165/crystal-embellished-gown-24766.jpg" alt="Crystal Embellished Gown 24766" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/jovani-pageant-dresses/40477-crystal-embellished-gown-24766.html"><img src="//static.msromantic.com/88163/crystal-embellished-gown-24766.jpg" alt="Crystal Embellished Gown 24766" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/jovani-pageant-dresses/40477-crystal-embellished-gown-24766.html](https://www.readybrides.com/en/jovani-pageant-dresses/40477-crystal-embellished-gown-24766.html)
+<!-- break --><a href="https://www.antebrands.com/en/jovani-pageant-dresses/40477-crystal-embellished-gown-24766.html"><img src="//static.msromantic.com/88165/crystal-embellished-gown-24766.jpg" alt="Crystal Embellished Gown 24766" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-pageant-dresses/40477-crystal-embellished-gown-24766.html"><img src="//static.msromantic.com/88163/crystal-embellished-gown-24766.jpg" alt="Crystal Embellished Gown 24766" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/jovani-pageant-dresses/40477-crystal-embellished-gown-24766.html](https://www.antebrands.com/en/jovani-pageant-dresses/40477-crystal-embellished-gown-24766.html)

@@ -9,7 +9,7 @@ tags: [Atelier Aimée,Ballgown,Sweetheart,Sleeveless]
 Just **$509.99**
 ###   Sleeveless  Ballgown 
 <table><tr><td>BRANDS</td><td>Atelier Aimée</td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/atelier-aimee/40972-atelier-aimee-2011-ball-gown-wedding-dress-with-pink-accents.html"><img src="//static.msromantic.com/89412/atelier-aimee-2011-ball-gown-wedding-dress-with-pink-accents.jpg" alt="Atelier Aimée 2011 ball gown wedding dress with pink accents" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/atelier-aimee/40972-atelier-aimee-2011-ball-gown-wedding-dress-with-pink-accents.html"><img src="//static.msromantic.com/89412/atelier-aimee-2011-ball-gown-wedding-dress-with-pink-accents.jpg" alt="Atelier Aimée 2011 ball gown wedding dress with pink accents" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/atelier-aimee/40972-atelier-aimee-2011-ball-gown-wedding-dress-with-pink-accents.html"><img src="//static.msromantic.com/89411/atelier-aimee-2011-ball-gown-wedding-dress-with-pink-accents.jpg" alt="Atelier Aimée 2011 ball gown wedding dress with pink accents" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/atelier-aimee/40972-atelier-aimee-2011-ball-gown-wedding-dress-with-pink-accents.html](https://www.readybrides.com/en/atelier-aimee/40972-atelier-aimee-2011-ball-gown-wedding-dress-with-pink-accents.html)
+<!-- break --><a href="https://www.antebrands.com/en/atelier-aimee/40972-atelier-aimee-2011-ball-gown-wedding-dress-with-pink-accents.html"><img src="//static.msromantic.com/89411/atelier-aimee-2011-ball-gown-wedding-dress-with-pink-accents.jpg" alt="Atelier Aimée 2011 ball gown wedding dress with pink accents" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/atelier-aimee/40972-atelier-aimee-2011-ball-gown-wedding-dress-with-pink-accents.html](https://www.antebrands.com/en/atelier-aimee/40972-atelier-aimee-2011-ball-gown-wedding-dress-with-pink-accents.html)

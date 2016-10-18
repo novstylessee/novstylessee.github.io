@@ -9,7 +9,7 @@ tags: [Johanna Johnson ,Johanna Johnson,Sheath/Column,Scoop Neck,Short/Mini,Slee
 Just **$389.99**
 ###   Sleeveless Short/Mini Sheath/Column 
 <table><tr><td>BRANDS</td><td>Johanna Johnson</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Scoop Neck</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/johanna-johnson-/34930-johanna-johnsonthe-langdon-mini.html"><img src="//static.msromantic.com/72264/johanna-johnsonthe-langdon-mini.jpg" alt="Johanna Johnsonthe langdon mini" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/johanna-johnson-/34930-johanna-johnsonthe-langdon-mini.html"><img src="//static.msromantic.com/72264/johanna-johnsonthe-langdon-mini.jpg" alt="Johanna Johnsonthe langdon mini" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/johanna-johnson-/34930-johanna-johnsonthe-langdon-mini.html](https://www.readybrides.com/en/johanna-johnson-/34930-johanna-johnsonthe-langdon-mini.html)
+Buy it: [https://www.antebrands.com/en/johanna-johnson-/34930-johanna-johnsonthe-langdon-mini.html](https://www.antebrands.com/en/johanna-johnson-/34930-johanna-johnsonthe-langdon-mini.html)

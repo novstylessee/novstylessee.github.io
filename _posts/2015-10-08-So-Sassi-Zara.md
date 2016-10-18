@@ -9,7 +9,7 @@ tags: [So Sassi]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/so-sassi/37054-so-sassi-zara.html"><img src="//static.msromantic.com/77427/so-sassi-zara.jpg" alt="So Sassi Zara" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/so-sassi/37054-so-sassi-zara.html"><img src="//static.msromantic.com/77427/so-sassi-zara.jpg" alt="So Sassi Zara" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/so-sassi/37054-so-sassi-zara.html](https://www.readybrides.com/en/so-sassi/37054-so-sassi-zara.html)
+Buy it: [https://www.antebrands.com/en/so-sassi/37054-so-sassi-zara.html](https://www.antebrands.com/en/so-sassi/37054-so-sassi-zara.html)

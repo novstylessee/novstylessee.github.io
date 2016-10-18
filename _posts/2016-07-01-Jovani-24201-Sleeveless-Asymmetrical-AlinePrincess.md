@@ -9,8 +9,8 @@ tags: [Jovani ,Jovani,Aline/Princess ,Square,Asymmetrical,Sleeveless]
 Just **$329.99**
 ###   Sleeveless Asymmetrical Aline/Princess  
 <table><tr><td>BRANDS</td><td>Jovani</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Square</td></tr><tr><td>Hemline/Train</td><td>Asymmetrical</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/jovani-/40123-jovani-24201.html"><img src="//static.msromantic.com/87009/jovani-24201.jpg" alt="Jovani 24201" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-/40123-jovani-24201.html"><img src="//static.msromantic.com/87009/jovani-24201.jpg" alt="Jovani 24201" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/jovani-/40123-jovani-24201.html"><img src="//static.msromantic.com/87010/jovani-24201.jpg" alt="Jovani 24201" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/jovani-/40123-jovani-24201.html"><img src="//static.msromantic.com/87008/jovani-24201.jpg" alt="Jovani 24201" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/jovani-/40123-jovani-24201.html](https://www.readybrides.com/en/jovani-/40123-jovani-24201.html)
+<!-- break --><a href="https://www.antebrands.com/en/jovani-/40123-jovani-24201.html"><img src="//static.msromantic.com/87010/jovani-24201.jpg" alt="Jovani 24201" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-/40123-jovani-24201.html"><img src="//static.msromantic.com/87008/jovani-24201.jpg" alt="Jovani 24201" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/jovani-/40123-jovani-24201.html](https://www.antebrands.com/en/jovani-/40123-jovani-24201.html)

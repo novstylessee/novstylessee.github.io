@@ -9,7 +9,7 @@ tags: [Jovani Pageant Dresses]
 Just **$369.99**
 ###      
 <table><tr><td>BRANDS</td><td>Jovani Pageant Dresses</td></tr></table>
-<a href="https://www.readybrides.com/en/jovani-pageant-dresses/40454-purple-mermaid-dress-27450.html"><img src="//static.msromantic.com/88085/purple-mermaid-dress-27450.jpg" alt="Purple Mermaid Dress 27450" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-pageant-dresses/40454-purple-mermaid-dress-27450.html"><img src="//static.msromantic.com/88085/purple-mermaid-dress-27450.jpg" alt="Purple Mermaid Dress 27450" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jovani-pageant-dresses/40454-purple-mermaid-dress-27450.html](https://www.readybrides.com/en/jovani-pageant-dresses/40454-purple-mermaid-dress-27450.html)
+Buy it: [https://www.antebrands.com/en/jovani-pageant-dresses/40454-purple-mermaid-dress-27450.html](https://www.antebrands.com/en/jovani-pageant-dresses/40454-purple-mermaid-dress-27450.html)

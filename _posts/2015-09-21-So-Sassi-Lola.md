@@ -9,7 +9,7 @@ tags: [So Sassi]
 Just **$249.99**
 ### 
 
-<a href="https://www.readybrides.com/en/so-sassi/37037-so-sassi-lola.html"><img src="//static.msromantic.com/77389/so-sassi-lola.jpg" alt="So Sassi Lola" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/so-sassi/37037-so-sassi-lola.html"><img src="//static.msromantic.com/77389/so-sassi-lola.jpg" alt="So Sassi Lola" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/so-sassi/37037-so-sassi-lola.html"><img src="//static.msromantic.com/77388/so-sassi-lola.jpg" alt="So Sassi Lola" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/so-sassi/37037-so-sassi-lola.html](https://www.readybrides.com/en/so-sassi/37037-so-sassi-lola.html)
+<!-- break --><a href="https://www.antebrands.com/en/so-sassi/37037-so-sassi-lola.html"><img src="//static.msromantic.com/77388/so-sassi-lola.jpg" alt="So Sassi Lola" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/so-sassi/37037-so-sassi-lola.html](https://www.antebrands.com/en/so-sassi/37037-so-sassi-lola.html)

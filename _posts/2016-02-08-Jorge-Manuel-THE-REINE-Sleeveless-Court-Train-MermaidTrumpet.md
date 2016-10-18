@@ -9,7 +9,7 @@ tags: [Jorge Manuel ,Jorge Manuel,Mermaid/Trumpet,Sweetheart,Court Train,Sleevel
 Just **$299.99**
 ###   Sleeveless Court Train Mermaid/Trumpet 
 <table><tr><td>BRANDS</td><td>Jorge Manuel</td></tr><tr><td>Silhouette</td><td>Mermaid/Trumpet</td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Court Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/jorge-manuel-/35776-jorge-manuel-the-reine.html"><img src="//static.msromantic.com/75035/jorge-manuel-the-reine.jpg" alt="Jorge Manuel THE REINE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jorge-manuel-/35776-jorge-manuel-the-reine.html"><img src="//static.msromantic.com/75035/jorge-manuel-the-reine.jpg" alt="Jorge Manuel THE REINE" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jorge-manuel-/35776-jorge-manuel-the-reine.html](https://www.readybrides.com/en/jorge-manuel-/35776-jorge-manuel-the-reine.html)
+Buy it: [https://www.antebrands.com/en/jorge-manuel-/35776-jorge-manuel-the-reine.html](https://www.antebrands.com/en/jorge-manuel-/35776-jorge-manuel-the-reine.html)

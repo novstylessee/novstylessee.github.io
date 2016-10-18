@@ -9,7 +9,7 @@ tags: [Jonathan James Couture Icon Collection]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36399-jonathan-james-couture-megan.html"><img src="//static.msromantic.com/75812/jonathan-james-couture-megan.jpg" alt="Jonathan James Couture Megan" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36399-jonathan-james-couture-megan.html"><img src="//static.msromantic.com/75812/jonathan-james-couture-megan.jpg" alt="Jonathan James Couture Megan" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36399-jonathan-james-couture-megan.html](https://www.readybrides.com/en/jonathan-james-couture-icon-collection/36399-jonathan-james-couture-megan.html)
+Buy it: [https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36399-jonathan-james-couture-megan.html](https://www.antebrands.com/en/jonathan-james-couture-icon-collection/36399-jonathan-james-couture-megan.html)

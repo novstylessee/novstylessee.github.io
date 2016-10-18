@@ -9,8 +9,8 @@ tags: [WEDDING DRESSES]
 Just **$519.99**
 ### 
 
-<a href="https://www.readybrides.com/en/wedding-dresses/40534-mermaid-wedding-gown-jb98244.html"><img src="//static.msromantic.com/88371/mermaid-wedding-gown-jb98244.jpg" alt="Mermaid Wedding Gown JB98244" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/wedding-dresses/40534-mermaid-wedding-gown-jb98244.html"><img src="//static.msromantic.com/88371/mermaid-wedding-gown-jb98244.jpg" alt="Mermaid Wedding Gown JB98244" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/wedding-dresses/40534-mermaid-wedding-gown-jb98244.html"><img src="//static.msromantic.com/88372/mermaid-wedding-gown-jb98244.jpg" alt="Mermaid Wedding Gown JB98244" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/wedding-dresses/40534-mermaid-wedding-gown-jb98244.html"><img src="//static.msromantic.com/88370/mermaid-wedding-gown-jb98244.jpg" alt="Mermaid Wedding Gown JB98244" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/wedding-dresses/40534-mermaid-wedding-gown-jb98244.html](https://www.readybrides.com/en/wedding-dresses/40534-mermaid-wedding-gown-jb98244.html)
+<!-- break --><a href="https://www.antebrands.com/en/wedding-dresses/40534-mermaid-wedding-gown-jb98244.html"><img src="//static.msromantic.com/88372/mermaid-wedding-gown-jb98244.jpg" alt="Mermaid Wedding Gown JB98244" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/wedding-dresses/40534-mermaid-wedding-gown-jb98244.html"><img src="//static.msromantic.com/88370/mermaid-wedding-gown-jb98244.jpg" alt="Mermaid Wedding Gown JB98244" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/wedding-dresses/40534-mermaid-wedding-gown-jb98244.html](https://www.antebrands.com/en/wedding-dresses/40534-mermaid-wedding-gown-jb98244.html)

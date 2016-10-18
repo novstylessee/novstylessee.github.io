@@ -9,8 +9,8 @@ tags: [Jovani ,Jovani,Sheath/Column,Halter,Sweep/Brush Train,Sleeveless]
 Just **$528.98**
 ###   Sleeveless Sweep/Brush Train Sheath/Column 
 <table><tr><td>BRANDS</td><td>Jovani</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Halter</td></tr><tr><td>Hemline/Train</td><td>Sweep/Brush Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/jovani-/39328-jovani-black-nude-fitted-halter-prom-dress-3014.html"><img src="//static.msromantic.com/84405/jovani-black-nude-fitted-halter-prom-dress-3014.jpg" alt="Jovani Black/Nude Fitted Halter Prom Dress 3014" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-/39328-jovani-black-nude-fitted-halter-prom-dress-3014.html"><img src="//static.msromantic.com/84405/jovani-black-nude-fitted-halter-prom-dress-3014.jpg" alt="Jovani Black/Nude Fitted Halter Prom Dress 3014" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/jovani-/39328-jovani-black-nude-fitted-halter-prom-dress-3014.html"><img src="//static.msromantic.com/84406/jovani-black-nude-fitted-halter-prom-dress-3014.jpg" alt="Jovani Black/Nude Fitted Halter Prom Dress 3014" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/jovani-/39328-jovani-black-nude-fitted-halter-prom-dress-3014.html"><img src="//static.msromantic.com/84404/jovani-black-nude-fitted-halter-prom-dress-3014.jpg" alt="Jovani Black/Nude Fitted Halter Prom Dress 3014" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/jovani-/39328-jovani-black-nude-fitted-halter-prom-dress-3014.html](https://www.readybrides.com/en/jovani-/39328-jovani-black-nude-fitted-halter-prom-dress-3014.html)
+<!-- break --><a href="https://www.antebrands.com/en/jovani-/39328-jovani-black-nude-fitted-halter-prom-dress-3014.html"><img src="//static.msromantic.com/84406/jovani-black-nude-fitted-halter-prom-dress-3014.jpg" alt="Jovani Black/Nude Fitted Halter Prom Dress 3014" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jovani-/39328-jovani-black-nude-fitted-halter-prom-dress-3014.html"><img src="//static.msromantic.com/84404/jovani-black-nude-fitted-halter-prom-dress-3014.jpg" alt="Jovani Black/Nude Fitted Halter Prom Dress 3014" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/jovani-/39328-jovani-black-nude-fitted-halter-prom-dress-3014.html](https://www.antebrands.com/en/jovani-/39328-jovani-black-nude-fitted-halter-prom-dress-3014.html)

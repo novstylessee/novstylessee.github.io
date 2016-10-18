@@ -9,7 +9,7 @@ tags: [Atelier Aimée]
 Just **$549.99**
 ### 
 
-<a href="https://www.readybrides.com/en/atelier-aimee/40906-atelier-aimee-wedding-dresses-2013-strapless-ball-gown.html"><img src="//static.msromantic.com/89332/atelier-aimee-wedding-dresses-2013-strapless-ball-gown.jpg" alt="Atelier Aimée wedding dresses 2013 strapless ball gown" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/atelier-aimee/40906-atelier-aimee-wedding-dresses-2013-strapless-ball-gown.html"><img src="//static.msromantic.com/89332/atelier-aimee-wedding-dresses-2013-strapless-ball-gown.jpg" alt="Atelier Aimée wedding dresses 2013 strapless ball gown" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/atelier-aimee/40906-atelier-aimee-wedding-dresses-2013-strapless-ball-gown.html](https://www.readybrides.com/en/atelier-aimee/40906-atelier-aimee-wedding-dresses-2013-strapless-ball-gown.html)
+Buy it: [https://www.antebrands.com/en/atelier-aimee/40906-atelier-aimee-wedding-dresses-2013-strapless-ball-gown.html](https://www.antebrands.com/en/atelier-aimee/40906-atelier-aimee-wedding-dresses-2013-strapless-ball-gown.html)

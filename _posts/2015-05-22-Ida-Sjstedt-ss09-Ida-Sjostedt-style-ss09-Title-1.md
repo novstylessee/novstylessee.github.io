@@ -9,7 +9,7 @@ tags: [Ida Sjöstedt ss09]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/ida-sjoestedt-ss09/34580-ida-sjostedt-style-ss09-title-1.html"><img src="//static.msromantic.com/71763/ida-sjostedt-style-ss09-title-1.jpg" alt="Ida Sjostedt style ss09 Title 1" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ida-sjoestedt-ss09/34580-ida-sjostedt-style-ss09-title-1.html"><img src="//static.msromantic.com/71763/ida-sjostedt-style-ss09-title-1.jpg" alt="Ida Sjostedt style ss09 Title 1" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/ida-sjoestedt-ss09/34580-ida-sjostedt-style-ss09-title-1.html"><img src="//static.msromantic.com/71762/ida-sjostedt-style-ss09-title-1.jpg" alt="Ida Sjostedt style ss09 Title 1" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/ida-sjoestedt-ss09/34580-ida-sjostedt-style-ss09-title-1.html](https://www.readybrides.com/en/ida-sjoestedt-ss09/34580-ida-sjostedt-style-ss09-title-1.html)
+<!-- break --><a href="https://www.antebrands.com/en/ida-sjoestedt-ss09/34580-ida-sjostedt-style-ss09-title-1.html"><img src="//static.msromantic.com/71762/ida-sjostedt-style-ss09-title-1.jpg" alt="Ida Sjostedt style ss09 Title 1" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/ida-sjoestedt-ss09/34580-ida-sjostedt-style-ss09-title-1.html](https://www.antebrands.com/en/ida-sjoestedt-ss09/34580-ida-sjostedt-style-ss09-title-1.html)

@@ -9,7 +9,7 @@ tags: [Jenny Yoo ,Jenny Yoo,Aline/Princess ,Illusion,Knee-Length,Sleeveless]
 Just **$169.98**
 ###   Sleeveless Knee-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>Jenny Yoo</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Illusion</td></tr><tr><td>Hemline/Train</td><td>Knee-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/jenny-yoo-/35161-jenny-yoo-zoe.html"><img src="//static.msromantic.com/73480/jenny-yoo-zoe.jpg" alt="Jenny Yoo ZOE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jenny-yoo-/35161-jenny-yoo-zoe.html"><img src="//static.msromantic.com/73480/jenny-yoo-zoe.jpg" alt="Jenny Yoo ZOE" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/jenny-yoo-/35161-jenny-yoo-zoe.html"><img src="//static.msromantic.com/73479/jenny-yoo-zoe.jpg" alt="Jenny Yoo ZOE" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/jenny-yoo-/35161-jenny-yoo-zoe.html](https://www.readybrides.com/en/jenny-yoo-/35161-jenny-yoo-zoe.html)
+<!-- break --><a href="https://www.antebrands.com/en/jenny-yoo-/35161-jenny-yoo-zoe.html"><img src="//static.msromantic.com/73479/jenny-yoo-zoe.jpg" alt="Jenny Yoo ZOE" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/jenny-yoo-/35161-jenny-yoo-zoe.html](https://www.antebrands.com/en/jenny-yoo-/35161-jenny-yoo-zoe.html)
