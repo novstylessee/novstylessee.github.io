@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2018-01-06'
+date: 2018-01-06
 title: "Jenny Packham Hatty Short Sleeves Floor-Length Aline/Princess"
 category: Jenny Packham
 tags: [Jenny Packham,Aline/Princess ,Illusion,Floor-Length,Short Sleeves]

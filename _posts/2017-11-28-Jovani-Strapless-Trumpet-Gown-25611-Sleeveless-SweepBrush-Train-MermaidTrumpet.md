@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2017-11-28'
+date: 2017-11-28
 title: "Jovani Strapless Trumpet Gown 25611 Sleeveless Sweep/Brush Train Mermaid/Trumpet"
 category: Jovani 
 tags: [Jovani ,Jovani,Mermaid/Trumpet,Sweetheart,Sweep/Brush Train,Sleeveless]

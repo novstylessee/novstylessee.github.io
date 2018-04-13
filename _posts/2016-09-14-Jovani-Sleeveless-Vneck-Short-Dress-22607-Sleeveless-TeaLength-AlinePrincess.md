@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2016-09-14'
+date: 2016-09-14
 title: "Jovani Sleeveless V-neck Short Dress 22607 Sleeveless Tea-Length Aline/Princess"
 category: Jovani 
 tags: [Jovani ,Jovani,Aline/Princess ,V-neck,Tea-Length,Sleeveless]

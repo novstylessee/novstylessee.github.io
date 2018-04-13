@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2016-07-03'
+date: 2016-07-03
 title: "Jovani Cap Sleeve Lace Dress JVN27505 Sleeveless Sweep/Brush Train Sheath/Column"
 category: Jovani 
 tags: [Jovani ,Jovani,Sheath/Column,V-neck,Sweep/Brush Train,Sleeveless]

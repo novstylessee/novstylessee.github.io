@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2016-08-05'
+date: 2016-08-05
 title: "Johanna Johnson Johanna Johnsonthe fontaine in wedgewood blue Sleeveless Court Train Aline/Princess"
 category: Johanna Johnson 
 tags: [Johanna Johnson ,Johanna Johnson,Aline/Princess ,Sweetheart,Court Train,Sleeveless]

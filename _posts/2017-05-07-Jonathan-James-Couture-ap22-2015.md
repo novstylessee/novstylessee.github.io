@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2017-05-07'
+date: 2017-05-07
 title: "Jonathan James Couture ap-22 2015"
 category: Jonathan James Couture
 tags: [Jonathan James Couture,2015]
